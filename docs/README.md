@@ -210,7 +210,7 @@
 - Chapter 100
   - [DISC] Kaguya Wants to be Confessed to Ch. 100 <https://redd.it/83e5i9>
 
-## Chapter 100-150
+## Chapter 101-150
 
 - Chapter 101
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 101 :: Jaimini's Box <https://redd.it/851de2>
