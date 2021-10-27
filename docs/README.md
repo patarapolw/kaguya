@@ -1,3 +1,5 @@
+# Main manga (Kaguya-sama: Love Is War)
+
 - Chapter 1
   - Chapter 1 <https://redd.it/3u1c9w>
   - [DISC] Kaguya wants to be confessed to ch. 1 (official colored scans) <https://redd.it/9upcrk>
@@ -549,3 +551,12 @@
 - Chapter 241
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvdfq>
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvwfd>
+- Kaguya Wants to be Confessed To Darkness
+  - [DISC] Kaguya Wants to be Confessed To Darkness <https://redd.it/6bz7pp>
+- Kaguya Wants to Be Confessed to, Darkness (Vol 2)
+  - [DISC] Kaguya Wants to Be Confessed to, Darkness (Vol 2) <https://redd.it/78bn1t>
+
+## Spin offs
+
+- [We Want to Talk About Kaguya](/kaguya-talk)
+- [Kaguya Wants to be Confessed to Official Doujin](/doujin)
