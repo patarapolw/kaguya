@@ -304,3 +304,5 @@
   - [DISC] We want to talk about Kaguya - Chapter 145 <https://redd.it/q7ewng>
 - Chapter 146
   - [DISC] We Want to Talk About Kaguya - Chapter 146 <https://redd.it/qbi63q>
+- Chapter 147
+  - [DISC] We Want To Talk About Kaguya - Chapter 147 <https://redd.it/qgzt90>
