@@ -1,7 +1,7 @@
 - Chapter 1
   - [DISC] We Want to Talk About Kaguya :: Chapter 1 :: Jaimini's Box <https://redd.it/931av4>
 - Chapter 2
-  - **missing**
+  - We want to talk about Kaguya (4koma) chapter 2 <https://redd.it/958h11>
 - Chapter 3
   - [DISC] Kaguya Wants To Be Confessed To Spinoff Chapter 3: I Want To Talk About My Obsession <https://redd.it/97e3i1>
 - Chapter 4
@@ -49,25 +49,26 @@
 - Chapter 25
   - [DISC] We Want to Talk About Kaguya :: Chapter 25 :: Jaimini's Box <https://redd.it/auwfpe>
 - Chapter 26
-  - **missing**
+  - We Want to Talk About Kaguya - Chapter 26 <https://redd.it/aws6en>
+  - We Want to Talk About Kaguya - Chapter 26 <https://redd.it/awsh8h>
 - Chapter 27
   - [DISC] We Want To Talk About Kaguya Chapter 27 <https://redd.it/b5c8ox>
 - Chapter 28
-  - **missing**
+  - [Disc] We Want to Talk About Kaguya - Ch. 28 <https://redd.it/b9v9v5>
 - Chapter 28.5
   - [DISC] We Want to Talk About Kaguya - Ch. 28.5(Vol. 1 Extra chapter) <https://redd.it/bx1v1y>
 - Chapter 29
   - **missing**
 - Chapter 30
-  - **missing**
+  - [DISC]We Want to Talk About Kaguya Ch.30 <https://redd.it/bb0u20>
 - Chapter 31
-  - **missing**
+  - We Want to Talk About Kaguya- Chapter 31 <https://redd.it/b3w29r>
 - Chapter 32
   - [DISC] We Want to Talk About Kaguya - Ch. 32 <https://redd.it/b6sz4z>
 - Chapter 33
-  - **missing**
+  - [Disc] We Want to Talk About Kaguya - Ch. 33 <https://redd.it/b9jfi1>
 - Chapter 34
-  - **missing**
+  - [Disc] We Want to Talk About Kaguya - Ch. 34 <https://redd.it/bc4yk0>
 - Chapter 35
   - [DISC] We Want to Talk About Kaguya Chapter 35 <https://redd.it/bepqpe>
 - Chapter 36
@@ -75,7 +76,7 @@
 - Chapter 37
   - [DISC] We Want to Talk About Kaguya - Ch. 37 <https://redd.it/bmovsg>
 - Chapter 38
-  - **missing**
+  - [DISC.] We Want to Talk About Kaguya - Ch. 38 <https://redd.it/bp5g6l>
 - Chapter 39
   - [DISC] We Want to Talk About Kaguya - Ch. 39 <https://redd.it/brtq05>
 - Chapter 40
@@ -90,13 +91,13 @@
 - Chapter 44
   - [DISC] We Want to Talk About Kaguya - Ch. 44 <https://redd.it/c68ox1>
 - Chapter 45
-  - **missing**
+  - [Disc] We Want To Talk About Kaguya - Ch. 45 <https://redd.it/cb6zul>
 - Chapter 46
   - [DISC] We Want To Talk About Kaguya Ch. 46 <https://redd.it/cc2urz>
 - Chapter 47
   - [DISC] We Want To Talk About Kaguya - Ch. 47 <https://redd.it/cgxvdz>
 - Chapter 48
-  - **missing**
+  - We Want To Talk About Kaguya - Ch. 48 <https://redd.it/chtqkv>
 - Chapter 49
   - [DISC] We Want To Talk About Kaguya - Ch. 49 <https://redd.it/cla1qp>
 - Chapter 50
@@ -122,9 +123,9 @@
 - Chapter 59
   - [DISC] We Want To Talk About Kaguya Ch. 59 <https://redd.it/dld11v>
 - Chapter 60
-  - **missing**
+  - [Disc] We Want To Talk About Kaguya - Ch. 60 <https://redd.it/dnkfpn>
 - Chapter 61
-  - **missing**
+  - [Disc] We Want to Talk About Kaguya - Ch. 61 <https://redd.it/dr4eo3>
 - Chapter 62
   - [DISC] We Want To Talk About Kaguya Ch. 62 <https://redd.it/dzczfp>
 - Chapter 63
@@ -142,11 +143,12 @@
 - Chapter 69
   - [DISC] We Want To Talk About Kaguya Chapter 69 <https://redd.it/eudlyb>
 - Chapter 70
-  - **missing**
+  - We Want to Talk About Kaguya 70 <https://redd.it/f54g57>
+  - We Want To Talk About Kaguya - Chapter 70 | Guya.moe <https://redd.it/f4wych>
 - Chapter 71
   - [DISC] We Want To Talk About Kaguya Ch. 71 <https://redd.it/f8e8a6>
 - Chapter 72
-  - **missing**
+  - [Disc] We Want To Talk About Kaguya - Ch. 72 <https://redd.it/fjaxnq>
 - Chapter 73
   - [DISC] We Want To Talk About Kaguya Ch. 73 <https://redd.it/fjzueq>
 - Chapter 74

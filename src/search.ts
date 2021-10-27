@@ -2,6 +2,8 @@ import fs from "fs";
 
 import { RedditAPI } from "./shared";
 
+const PREFIX = process.env["PREFIX"] || "[DISC]";
+
 export async function search(q: string) {
   const api = new RedditAPI();
   const out: Record<string, string> = {};
@@ -11,7 +13,7 @@ export async function search(q: string) {
     const d = await api.search(q, after);
 
     d.data.children.map((c) => {
-      if (c.data.title.startsWith("[DISC] ")) {
+      if (c.data.title.startsWith(PREFIX)) {
         out[c.data.id] = c.data.title;
       }
     });
@@ -76,7 +78,7 @@ if (require.main === module) {
   let out = process.argv.slice(2).join(" ");
   if (!out) process.exit();
 
-  search(`[DISC] ${out}`).then((d) => {
+  search(`${PREFIX} ${out}`).then((d) => {
     makeMarkdown(d, out);
   });
 }

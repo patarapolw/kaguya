@@ -1,5 +1,3 @@
-Created At: 2021-10-27T15:01:36.830Z
-
 - Chapter 1
   - [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 1 :: Jaimini's Box <https://redd.it/8r7mt7>
 - Chapter 2
@@ -9,7 +7,7 @@ Created At: 2021-10-27T15:01:36.830Z
 - Chapter 4
   - [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 4 :: Jaimini's Box <https://redd.it/8zhmpv>
 - Chapter 5
-  - **missing**
+  - Kaguya Wants to be Confessed to Official Doujin Chapter 5: Yu Ishigami Wants to Hug <https://redd.it/93vwao>
 - Chapter 6
   - [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 6 :: Jaimini's Box <https://redd.it/97z9j8>
 - Chapter 7
@@ -51,7 +49,7 @@ Created At: 2021-10-27T15:01:36.830Z
 - Chapter 22
   - [DISC] Kaguya Wants to be Confessed to Official Doujin - 22 <https://redd.it/eiat9r>
 - Chapter 23
-  - **missing**
+  - [Disc] Kaguya Wants to be Confessed to Official Doujin Ch. 23 <https://redd.it/eiof9p>
 - Chapter 24
   - [DISC] Kaguya Wants to be Confessed to Official Doujin Ch. 24 <https://redd.it/ekgivb>
 - Chapter 24.5
