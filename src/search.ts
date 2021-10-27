@@ -3,6 +3,7 @@ import fs from "fs";
 import yaml from "js-yaml";
 
 import { RedditAPI } from "./shared";
+import { out } from "./var";
 
 async function search(q: string) {
   const api = new RedditAPI();
@@ -34,7 +35,6 @@ async function search(q: string) {
 }
 
 if (require.main === module) {
-  const out = "Kaguya Wants to Be Confessed to";
   search(process.argv[2] || `[DISC] ${out}`).then((d) => {
     const s = (a: typeof d[0]) => Number(/\d+/.exec(a.title)?.[0]);
     fs.writeFileSync(
