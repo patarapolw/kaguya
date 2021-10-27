@@ -3,6 +3,10 @@
   "version": "1.0.0",
   "main": "lib/index.js",
   "license": "MIT",
+  "scripts": {
+    "ts": "ts-node",
+    "authorize": "ts-node src/authorize.ts"
+  },
   "dependencies": {
     "axios": "^0.24.0",
     "open": "^8.4.0"
