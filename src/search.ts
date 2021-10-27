@@ -39,7 +39,10 @@ if (require.main === module) {
     const s = (a: typeof d[0]) => Number(/\d+/.exec(a.title)?.[0]);
     fs.writeFileSync(
       `out/${out}.yaml`,
-      yaml.dump(d.sort((a, b) => s(a) - s(b)))
+      yaml.dump({
+        scrapedAt: new Date(),
+        data: d.sort((a, b) => s(a) - s(b)),
+      })
     );
   });
 }
