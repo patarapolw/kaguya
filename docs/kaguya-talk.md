@@ -58,7 +58,8 @@
 - Chapter 28.5
   - [DISC] We Want to Talk About Kaguya - Ch. 28.5(Vol. 1 Extra chapter) <https://redd.it/bx1v1y>
 - Chapter 29
-  - **missing**
+  - [Disc] We Want to Talk About Kaguya - Ch. 28 <https://redd.it/b9v9v5>
+    - Chapter 29 is up as well. This leaves only ch. 30 untranslated. The /a/non said he'll translate it some other time.
 - Chapter 30
   - [DISC]We Want to Talk About Kaguya Ch.30 <https://redd.it/bb0u20>
 - Chapter 31
