@@ -1,5 +1,7 @@
 # Kaguya-sama: Love Is War
 
+## Chapter 1-50
+
 - Chapter 1
   - Chapter 1 <https://redd.it/3u1c9w>
   - [DISC] Kaguya wants to be confessed to ch. 1 (official colored scans) <https://redd.it/9upcrk>
@@ -102,6 +104,9 @@
   - Chapter 49 <https://redd.it/5p10bl>
 - Chapter 50
   - Chapter 50 <https://redd.it/5quuie>
+
+## Chapter 51-100
+
 - Chapter 51
   - Chapter 51 <https://redd.it/5rq8ne>
 - Chapter 52
@@ -204,6 +209,9 @@
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 99 :: Jaimini's Box <https://redd.it/81mu4r>
 - Chapter 100
   - [DISC] Kaguya Wants to be Confessed to Ch. 100 <https://redd.it/83e5i9>
+
+## Chapter 100-150
+
 - Chapter 101
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 101 :: Jaimini's Box <https://redd.it/851de2>
 - Chapter 101.1
@@ -322,6 +330,9 @@
   - [DISC] Kaguya wants to be confessed to Chapter 149 <https://redd.it/bri0sq>
 - Chapter 150
   - [DISC] Kaguya Wants to be Confessed To Chapter 150 <https://redd.it/buvn7c>
+
+## Chapter 151-200
+
 - Chapter 151
   - [DISC] Kaguya Wants to be Confessed to Chapter 151 <https://redd.it/c0dxsf>
 - Chapter 151.1
@@ -458,6 +469,9 @@
   - [DISC] Kaguya Wants to be Confessed To Ch. 200 (Wacky Typesetting) <https://redd.it/iqle5x>
   - [DISC]Kaguya Wants To Be Confessed To - Chapter 200 (#dropout scans) <https://redd.it/ir4nhu>
   - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 200 - Fujiwara Chika Wants to Celebrate Regal Publishing <https://redd.it/iqgjcp>
+
+## Chapter 201-current
+
 - Chapter 201
   - Chapter 201 <https://redd.it/iyd4ej>
   - [DISC] Kaguya Wants to be Confessed To - Chapter 201 - Tsubane koyasu wants to Rewrite <https://redd.it/iy1crq>
@@ -558,5 +572,5 @@
 
 ## Spin offs
 
-- [We Want to Talk About Kaguya](/kaguya-talk)
+- [We Want to Talk About Kaguya](/4koma)
 - [Kaguya Wants to be Confessed to Official Doujin](/doujin)

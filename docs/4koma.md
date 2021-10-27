@@ -1,5 +1,7 @@
 # We Want to Talk About Kaguya
 
+## Chapter 1-50
+
 - Chapter 1
   - [DISC] We Want to Talk About Kaguya :: Chapter 1 :: Jaimini's Box <https://redd.it/931av4>
 - Chapter 2
@@ -105,6 +107,9 @@
   - [DISC] We Want To Talk About Kaguya - Ch. 49 <https://redd.it/cla1qp>
 - Chapter 50
   - [DISC] We Want To Talk About Kaguya - Ch. 50 <https://redd.it/co9qi8>
+
+## Chapter 51-100
+
 - Chapter 51
   - [DISC] We Want To Talk About Kaguya - Ch. 51 <https://redd.it/ctliy5>
 - Chapter 52
@@ -210,6 +215,9 @@
   - [DISC] We Want to Talk About Kaguya Ch. 99 - We Want to Talk About Post-Graduation Plans <https://redd.it/j5wek4>
 - Chapter 100
   - [DISC] We Want to Talk About Kaguya Ch. 100 <https://redd.it/j6udpj>
+
+## Chapter 101-current
+
 - Chapter 101
   - [DISC] We Want to Talk About Kaguya - Chapter 101 - We Want to Talk About the Kita High Culture Festival (Zaibatsu HQ) <https://redd.it/japu1d>
 - Chapter 102

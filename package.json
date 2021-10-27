@@ -5,7 +5,10 @@
   "license": "MIT",
   "scripts": {
     "ts": "ts-node",
-    "authorize": "ts-node src/authorize.ts"
+    "authorize": "ts-node src/authorize.ts",
+    "docs:dev": "vuepress dev docs",
+    "docs:build": "vuepress build docs",
+    "deploy": "./deploy.sh"
   },
   "dependencies": {
     "axios": "^0.24.0",
@@ -15,7 +18,8 @@
     "@types/node": "^16.11.6",
     "import-sort-parser-typescript": "^6.0.0",
     "ts-node": "^10.4.0",
-    "typescript": "^4.4.4"
+    "typescript": "^4.4.4",
+    "vuepress": "^1.8.2"
   },
   "importSort": {
     ".js, .ts": {
