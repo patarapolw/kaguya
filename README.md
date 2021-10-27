@@ -2,7 +2,7 @@
 
 See [/docs](/docs).
 
-## Usage
+## Reddit API scraping
 
 - Create `./secret.json` with credentials from <https://www.reddit.com/prefs/apps>. See <https://github.com/reddit-archive/reddit/wiki/OAuth2>.
 
@@ -14,5 +14,8 @@ See [/docs](/docs).
 }
 ```
 
-- Authorize first (i.e. create `./token.json` programmatically) by running `npx ts-node src/authorize.ts`
-- Now, do as you please (see `src/index.ts`)
+- Authorize first (i.e. create `./token.json` programmatically) by running `yarn ts src/authorize.ts`
+- Run either
+  - `yarn ts src/search.ts <KEYWORDS>` (e.g. `yarn ts src/search.ts kaguya talk`)
+  - `yarn ts src/main.ts` for main manga
+- See the output in [/out](/out).
