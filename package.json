@@ -1,0 +1,24 @@
+{
+  "name": "kaguya",
+  "version": "1.0.0",
+  "main": "lib/index.js",
+  "license": "MIT",
+  "dependencies": {
+    "axios": "^0.24.0",
+    "js-yaml": "^4.1.0",
+    "open": "^8.4.0"
+  },
+  "devDependencies": {
+    "@types/js-yaml": "^4.0.4",
+    "@types/node": "^16.11.6",
+    "import-sort-parser-typescript": "^6.0.0",
+    "ts-node": "^10.4.0",
+    "typescript": "^4.4.4"
+  },
+  "importSort": {
+    ".js, .ts": {
+      "parser": "typescript",
+      "style": "module"
+    }
+  }
+}

@@ -1,0 +1,8 @@
+{
+  "editor.tabSize": 2,
+  "sort-imports.on-save": true,
+  "[typescript]": {
+    "editor.formatOnSave": true,
+    "editor.defaultFormatter": "esbenp.prettier-vscode"
+  }
+}
