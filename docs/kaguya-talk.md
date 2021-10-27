@@ -1,3 +1,5 @@
+# We Want to Talk About Kaguya
+
 - Chapter 1
   - [DISC] We Want to Talk About Kaguya :: Chapter 1 :: Jaimini's Box <https://redd.it/931av4>
 - Chapter 2

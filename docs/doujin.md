@@ -1,3 +1,5 @@
+# Kaguya Wants to be Confessed to Official Doujin
+
 - Chapter 1
   - [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 1 :: Jaimini's Box <https://redd.it/8r7mt7>
 - Chapter 2

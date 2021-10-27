@@ -1,4 +1,4 @@
-# Main manga (Kaguya-sama: Love Is War)
+# Kaguya-sama: Love Is War
 
 - Chapter 1
   - Chapter 1 <https://redd.it/3u1c9w>
