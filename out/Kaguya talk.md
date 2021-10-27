@@ -1,12 +1,25 @@
+
+Created At: 2021-10-27T13:51:43.465Z
+
 [DISC] We Want to Talk About Kaguya :: Chapter 1 :: Jaimini's Box <https://redd.it/931av4>
 
-## TODO: c002
+K-L 1k-5k <https://redd.it/cssave>
+
+Mary Skelter 2's English localization just got announced for Switch; why you, as a Neptunia fan or even moreso a Compile Heart fan in general, should play it (or even just lovers of the Dungeon Crawler RPG genre in general!) <https://redd.it/bn85db>
+
+Mary Skelter 2's English localization just got announced for Switch; why you, as a Compile Heart fan, should play it (or even just lovers of the Dungeon Crawler RPG genre in general!) <https://redd.it/bnfydo>
 
 [DISC] Kaguya Wants To Be Confessed To Spinoff Chapter 3: I Want To Talk About My Obsession <https://redd.it/97e3i1>
+
+[Rewatch]- Bakuman. Episode 3 <https://redd.it/apmp8v>
 
 [DISC] We Want to Talk About Kaguya :: Chapter 4 :: Jaimini's Box <https://redd.it/9au505>
 
 [DISC] We Want to Talk About Kaguya :: Chapter 5 :: Jaimini's Box <https://redd.it/9d14as>
+
+Weekly Manga Live Tracker: 05-07-2021 to 11-07-2021 <https://redd.it/odvym8>
+
+[SPOILERS] Completed P5 and Platinum'ed it this Weekend. A first timer's 2 cents. <https://redd.it/7sg6rw>
 
 [DISC] We Want to Talk About Kaguya :: Chapter 6 :: Jaimini's Box <https://redd.it/9eu1a0>
 
@@ -29,6 +42,8 @@
 [DISC] We Want to Talk About Kaguya :: Chapter 15 :: Jaimini's Box <https://redd.it/9yn925>
 
 [DISC] We Want to Talk About Kaguya :: Chapter 16 :: Jaimini's Box <https://redd.it/a0omy8>
+
+Weekly Manga Live Tracker: 16-10-2021 to 22-10-2021 <https://redd.it/q91jrh>
 
 [DISC] We Want to Talk About Kaguya :: Chapter 17 :: Jaimini's Box <https://redd.it/a2tbjy>
 
@@ -54,11 +69,9 @@
 
 [DISC] We Want to Talk About Kaguya - Ch. 28.5(Vol. 1 Extra chapter) <https://redd.it/bx1v1y>
 
-## TODO: c029
+Weekly Manga Live Tracker: 28-09-2021 to 04-10-2021 <https://redd.it/pwu7nx>
 
 [DISC]We Want to Talk About Kaguya Ch.30 <https://redd.it/bb0u20>
-
-## TODO: c031
 
 [DISC] We Want to Talk About Kaguya - Ch. 32 <https://redd.it/b6sz4z>
 
@@ -295,3 +308,8 @@
 [DISC] We want to talk about Kaguya - Chapter 145 <https://redd.it/q7ewng>
 
 [DISC] We Want to Talk About Kaguya - Chapter 146 <https://redd.it/qbi63q>
+
+PRAW search results not matching Reddit search <https://redd.it/mpgefk>
+
+Which version of the first four seasons of Samurai Jack should I get? DVD or iTunes? <https://redd.it/60mnug>
+

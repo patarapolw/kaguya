@@ -1,27 +1,18 @@
 import fs from "fs";
 
-import yaml from "js-yaml";
-
 import { RedditAPI } from "./shared";
-import { out } from "./var";
 
-async function search(q: string) {
+export async function search(q: string) {
   const api = new RedditAPI();
-  const out: {
-    title: string;
-    url: string;
-  }[] = [];
+  const out: Record<string, string> = {};
 
   let after: string | undefined;
   while (true) {
     const d = await api.search(q, after);
 
-    out.push(
-      ...d.data.children.map((c) => ({
-        title: c.data.title,
-        url: `https://redd.it/${c.data.id}`,
-      }))
-    );
+    d.data.children.map((c) => {
+      out[c.data.id] = c.data.title;
+    });
 
     after = d.data.after;
     if (!after) {
@@ -34,15 +25,29 @@ async function search(q: string) {
   return out;
 }
 
+export function makeMarkdown(d: Record<string, string>, out: string) {
+  const s = (a: string) => Number(/\d+/.exec(a)?.[0]);
+  fs.writeFileSync(
+    `out/${out}.md`,
+    `
+Created At: ${new Date().toISOString()}
+${Object.entries(d)
+  .sort(([, a], [, b]) => s(a) - s(b))
+  .map(
+    ([id, title]) => `
+${title} <https://redd.it/${id}>
+`
+  )
+  .join("")}
+`
+  );
+}
+
 if (require.main === module) {
-  search(process.argv[2] || `[DISC] ${out}`).then((d) => {
-    const s = (a: typeof d[0]) => Number(/\d+/.exec(a.title)?.[0]);
-    fs.writeFileSync(
-      `out/${out}.yaml`,
-      yaml.dump({
-        scrapedAt: new Date(),
-        data: d.sort((a, b) => s(a) - s(b)),
-      })
-    );
+  let out = process.argv.slice(2).join(" ");
+  if (!out) process.exit();
+
+  search(`[DISC] ${out}`).then((d) => {
+    makeMarkdown(d, out);
   });
 }

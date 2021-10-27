@@ -1,12 +1,11 @@
+
+Created At: 2021-10-27T13:51:11.489Z
+
 [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 1 :: Jaimini's Box <https://redd.it/8r7mt7>
 
 [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 2 :: Jaimini's Box <https://redd.it/8sy8w2>
 
-## TODO: c003
-
 [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 4 :: Jaimini's Box <https://redd.it/8zhmpv>
-
-## TODO: c005
 
 [DISC] Kaguya Wants to be Confessed to Official Doujin :: Chapter 6 :: Jaimini's Box <https://redd.it/97z9j8>
 
@@ -73,3 +72,4 @@
 [DISC] Kaguya Wants to be Confessed to Official Doujin Ch. 32 <https://redd.it/h95cue>
 
 [DISC] Kaguya Wants to be Confessed to Official Doujin Ch 33 <https://redd.it/hlbtwg>
+
