@@ -118,14 +118,17 @@
   - [DISC] We Want To Talk About Kaguya Ch. 53 <https://redd.it/d077lt>
 - Chapter 53.5 - The First Kaguya-sama Fan Club Meeting
   - [DISC] We Want to Talk About Kaguya Ch. 53.5 - The First Kaguya-sama Fan Club Meeting <https://redd.it/ji64df>
+  - We Want to Talk About Kaguya - Chapter 53.5 - The First Kaguya-sama Fan Club Meeting <https://redd.it/ji7sjv>
 - Chapter 54 - We Want to Talk About the lack of President x Kaguya-Sama
   - [DISC] We Want To Talk About Kaguya Ch. 54 <https://redd.it/d3xvr2>
 - Chapter 55 - We Want to Talk About the Portrait From the Gods
   - [DISC] We Want To Talk About Kaguya - Ch. 55 <https://redd.it/d6ky6l>
+  - We Want To Talk About Kaguya - Ch. 55 <https://redd.it/d6ky80>
 - Chapter 56 - We Want to Talk about True Love
   - [DISC] We Want To Talk About Kaguya - Ch. 56 <https://redd.it/db5aul>
 - Chapter 57 - We Want to Talk About True Love, Part 2
   - [DISC] We Want To Talk About Kaguya - Ch. 57 <https://redd.it/ddbzo1>
+  - We Want To Talk About Kaguya - Ch. 57 <https://redd.it/ddbzpf>
 - Chapter 58 - We Want to Talk About the Student Council Election Bulletin
   - [DISC] We Want To Talk About Kaguya - Ch. 58 <https://redd.it/di35o9>
 - Chapter 59 - We Want to Talk About What to Call (Former) president Shirogane
@@ -134,6 +137,7 @@
   - [Disc] We Want To Talk About Kaguya - Ch. 60 <https://redd.it/dnkfpn>
 - Chapter 61 - We Want to Talk About the Student Election
   - [Disc] We Want to Talk About Kaguya - Ch. 61 <https://redd.it/dr4eo3>
+  - We Want to Talk About Kaguya - Ch. 61 <https://redd.it/dr4el7>
 - Chapter 62 - We want to talk about the new student council member
   - [DISC] We Want To Talk About Kaguya Ch. 62 <https://redd.it/dzczfp>
 - Chapter 63 - We Want to Talk About The Massage Situation
@@ -146,10 +150,13 @@
   - [DISC] We Want To Talk About Kaguya Ch. 66 <https://redd.it/eetqxr>
 - Chapter 67 - We want to talk about advice partners
   - [DISC] We Want To Talk About Kaguya Ch. 67 <https://redd.it/eglms9>
+  - We Want to Talk About Kaguya 67 promo <https://redd.it/ee42ec>
 - Chapter 68 - we want to talk about girl parties
   - [DISC] We Want To Talk About Kaguya Chapter 68 <https://redd.it/eqlfej>
+  - We Want To Talk About Kaguya - Ch. 68 <https://redd.it/eqlql9>
 - Chapter 69 - We Want to Talk to the Auditing Officer
   - [DISC] We Want To Talk About Kaguya Chapter 69 <https://redd.it/eudlyb>
+  - We Want to Talk About Kaguya 69 <https://redd.it/eudvxa>
 - Chapter 70 - The Kaguya-sama Fanclub Wants to Talk
   - We Want to Talk About Kaguya 70 <https://redd.it/f54g57>
   - We Want To Talk About Kaguya - Chapter 70 | Guya.moe <https://redd.it/f4wych>
@@ -158,12 +165,16 @@
   - We Want to Talk About Kaguya ~~1~~71 <https://redd.it/f8ef4b>
 - Chapter 72 - We Want to Talk About Gathering Comrades
   - [Disc] We Want To Talk About Kaguya - Ch. 72 <https://redd.it/fjaxnq>
+  - We Want To Talk About Kaguya - Ch. 72 <https://redd.it/fjay6l>
 - Chapter 73 - We Want to Talk About Erika's Infidelity
   - [DISC] We Want To Talk About Kaguya Ch. 73 <https://redd.it/fjzueq>
+  - We Want To Talk About Kaguya - Ch. 73 <https://redd.it/fjzv8q>
 - Chapter 74 - We can't talk to the cheer team
   - [DISC] We Want To Talk About Kaguya Ch. 74 <https://redd.it/fokyff>
+  - We Want To Talk About Kaguya - Chapter 74 | Guya.moe <https://redd.it/folnmi>
 - Chapter 75 - We Want to Talk About the sports
   - [DISC] We Want to Talk about Kaguya Ch.75 <https://redd.it/fv1ijx>
+  - We Want To Talk About Kaguya 75 :: guya.moe <https://redd.it/fv63bp>
 - Chapter 76 - We Want to Talk About the sports festival (2)
   - [DISC] We Want To Talk About Kaguya - Chapter 76 | Guya.moe <https://redd.it/fvl4hr>
   - We Want To Talk About Kaguya 76 :: guya.moe <https://redd.it/fvo591>
