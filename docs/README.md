@@ -95,7 +95,7 @@
 - Chapter 40 - Miyuki Shirogane Wants to Go on a Trip
   - Chapter 40 <https://redd.it/59rmca>
 - Chapter 40.5 - Volume 4 Extras
-  - **missing**
+  - Kaguya Wants to be Confessed To Ch. 40.5 Volume 4 Extras <https://redd.it/5uldm6>
 - Chapter 41 - Miyuki Shirogane Wants to Meet
   - Chapter 41 <https://redd.it/5blrrj>
 - Chapter 42 - Ai Hayasaka Wants to Soak
@@ -241,7 +241,7 @@
 - Chapter 101.1 - Vol 10 Extras
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 101.1 :: Jaimini's Box <https://redd.it/91om82>
 - Chapter 101.5 - Season 2 Blu-ray Extras
-  - **missing**
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen - Chapter 101.5 (Season 2 Blu-ray Extras) <https://redd.it/m99045>
 - Chapter 102 - Kaguya-sama Doesn't Realize
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 102 :: Jaimini's Box <https://redd.it/86xxgj>
 - Chapter 103 - Miyuki Shirogane Wants to Mediate
@@ -417,7 +417,8 @@
 - Chapter 171 - We Want to Talk About the Tabletop Gaming Club
   - [DISC] Kaguya Wants to be Confessed to Ch. 171 <https://redd.it/e6bfqb>
 - Chapter 171.1 - Vol 17 Extras
-  - **missing**
+  - Kaguya Wants to be Confessed to :: Chapter 171.1 (Volume 17 Extras) <https://redd.it/fo99ng>
+  - Kaguya Wants to be Confessed to :: Chapter 171.1 (Volume 17 Extras) <https://redd.it/fo9a4q>
 - Chapter 172 - Kaguya Wants to Trust
   - [DISC] Kaguya Wants to Be Confessed To - Ch. 172 <https://redd.it/e9xhfs>
 - Chapter 172.1 - Kagukoku: Miyuki and His Girls
@@ -526,7 +527,8 @@
 - Chapter 211 - Kaguya-sama Wants to Sit
   - [DISC] Kaguya Wants to be Confessed To - Ch. 211 (Zaibatsu HQ) <https://redd.it/kabn8o>
 - Chapter 211.1 - Vol 21 Extras
-  - **missing**
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen - Chapter 211.1 (Volume 21 Extras) <https://redd.it/m8havv>
+  - Kaguya Wants To Be Confessed To : : Chapter 211.1 (Volume 21 Extras) <https://redd.it/m8h9cf>
 - Chapter 212 - Mikado Shijo Wants to Fit In
   - [DISC] Kaguya Wants to be Confessed To (Chapter 212) (Zaibatsu HQ) <https://redd.it/kjesxt>
   - [DISC] Kaguya Wants to be Confessed to - Chapter 212 (Speedscan) <https://redd.it/kj6z7i>
