@@ -166,56 +166,85 @@
   - [DISC] We Want to Talk about Kaguya Ch.75 <https://redd.it/fv1ijx>
 - Chapter 76 - We Want to Talk About the sports festival (2)
   - [DISC] We Want To Talk About Kaguya - Chapter 76 | Guya.moe <https://redd.it/fvl4hr>
+  - We Want To Talk About Kaguya 76 :: guya.moe <https://redd.it/fvo591>
 - Chapter 77 - We Want to Talk About the sports festival (3)
   - [DISC] We Want To Talk About Kaguya Ch. 77 <https://redd.it/g03uf1>
+  - We Want To Talk About Kaguya Ch.77 <https://redd.it/g05vip>
 - Chapter 78 - We Want to Talk About the sports festival (4)
   - [DISC] We Want To Talk About Kaguya Ch. 78 <https://redd.it/g5aaw5>
+  - We Want To Talk About Kaguya - Chapter 78 | Guya.moe <https://redd.it/g5ahr6>
 - Chapter 79 - We Want to Talk About That Game
   - [DISC] We Want To Talk About Kaguya Ch. 79 <https://redd.it/g6ogne>
+  - We Want To Talk About Kaguya - Chapter 79 | Guya.moe <https://redd.it/g6ypy7>
 - Chapter 79.5 - We Want to Talk About the Name of That Game - The Sequel
   - [DISC] We Want to Talk About Kaguya Ch. 79.5 <https://redd.it/jj5lh8>
+  - We Want To Talk About Kaguya - Ch. 79.5 <https://redd.it/jj5zcp>
 - Chapter 80 - We Want to Talk About the Everyday Love Chat
   - [DISC] We Want To Talk About Kaguya Ch. 80 <https://redd.it/g8kutb>
+  - We Want To Talk About Kaguya - Chapter 80 | Guya.moe <https://redd.it/g8pwb5>
 - Chapter 81 - We Want to Talk About What Happened at the Mixer (1)
   - [DISC] We Want to Talk about Kaguya Ch. 81 <https://redd.it/ggof36>
+  - We Want To Talk About Kaguya - Chapter 81 | Guya.moe <https://redd.it/ggsuf8>
 - Chapter 82 - We Want to Talk About What Happened at the Mixer (2)
   - [DISC] We Want To Talk About Kaguya Ch. 82 <https://redd.it/gk0gn7>
+  - Ch. 82 (We Want To Talk About Kaguya) - MangaDex <https://redd.it/gk0qtb>
 - Chapter 83 - We Want to Talk About Being Soothed
   - [DISC] We Want to Talk About Kaguya Ch. 83 <https://redd.it/gln1o5>
+  - We Want To Talk About Kaguya - Chapter 83 | Guya.moe <https://redd.it/glq56o>
 - Chapter 84 - We Want to Talk About Oyster Fried Rice
   - [DISC] We Want to Talk About Kaguya Ch. 84 <https://redd.it/gqfw1r>
+  - We Want to Talk About Kaguya-- Chapter 84 <https://redd.it/gqi6dd>
 - Chapter 85 - We Want to Talk About the Incident of Infidelity
   - [DISC] We Want to Talk About Kaguya Ch. 85 <https://redd.it/h17y9h>
+  - We Want To Talk About Kaguya - Ch. 85 <https://redd.it/h181rp>
 - Chapter 86 - We Can't Talk About Cheering Her Up
   - [DISC] We Want to Talk About Kaguya Chapter 86 <https://redd.it/hb4a2u>
+  - Ch. 86 (We Want to Talk About Kaguya) - MangaDex <https://redd.it/hb4kq6>
+  - We Want to Talk About Kaguya-- Chapter 86 <https://redd.it/hbdi0p>
 - Chapter 87 - The CD Can't Speak
   - [DISC] We Want to Talk About Kaguya Ch. 87 <https://redd.it/hhlz5p>
+  - We Want To Talk About Kaguya - Ch. 87 <https://redd.it/hhmdrh>
 - Chapter 88 - We Want to Talk to the Headmaster
   - [DISC] We Want to Talk about Kaguya Ch. 88 <https://redd.it/hpfhod>
+  - We Want To Talk About Kaguya - Ch. 88 <https://redd.it/hpg0he>
 - Chapter 89 - We Want to Talk Through Line
   - [DISC] We Want to Talk About Kaguya - Chapter 89 <https://redd.it/hxqs6u>
+  - We Want To Talk About Kaguya - Ch. 89 <https://redd.it/hxsq07>
+  - My attempt at cleaning up the sticker Hayasaka sends in the latest chapter (89) of We Want to Talk About Kaguya <https://redd.it/hy0swj>
 - Chapter 90 - We Want to Talk About the Sketchbook
   - [DISC] We Want to Talk About Kaguya - Chapter 90 <https://redd.it/i2l9qg>
+  - We Want To Talk About Kaguya - Chapter 90 | Guya.moe <https://redd.it/i2o8zy>
 - Chapter 91 - We Want to Talk to Treasurer Ishigami
   - [DISC] We Want to Talk About Kaguya - Chapter 91 <https://redd.it/ib5vlg>
+  - We Want To Talk About Kaguya - Chapter 91 | Guya.moe <https://redd.it/ib5zqz>
 - Chapter 92 - I Want to Talk with Toyosaki Saburou
   - [DISC] We Want to Talk About Kaguya - Chapter 92 <https://redd.it/ientk4>
 - Chapter 93 - We Want to Talk about Our Enthusiasm for the Exam
   - [DISC] We Want to Talk About Kaguya - Chapter 93 <https://redd.it/iergtu>
+  - We Want to Talk about Kaguya - Chapter 93! <https://redd.it/ies3ak>
 - Chapter 94 - We Want to Talk at a Sleepover
   - [DISC] We Want to Talk About Kaguya - Chapter 94 <https://redd.it/isd0bn>
+  - We Want To Talk About Kaguya - Ch. 94 <https://redd.it/ise29t>
 - Chapter 95 - We Want to Talk about Romance Between Guys
   - [DISC] We Want to Talk About Kaguya - Chapter 95 - We Want to Talk about Romance between Guys (Zaibatsu HQ) <https://redd.it/iu5bal>
+  - We Want To Talk About Kaguya - Ch. 95 <https://redd.it/iu7ihg>
 - Chapter 96 - We Want to Talk about the President’s Rap
   - [DISC] We Want to Talk About Kaguya - Chapter 96 - We Want to Talk about the President’s Rap (Zaibatsu HQ) <https://redd.it/ixe3sj>
+  - We Want to Talk About Kaguya - Chapter 96 - We Want to Talk about the President’s Rap <https://redd.it/ixe3te>
 - Chapter 97 - The Unpopular Girl Shouldn’t Talk
   - [DISC] We Want to Talk About Kaguya - Chapter 97 - The Unpopular Girl Shouldn’t Talk (Zaibatsu HQ) <https://redd.it/izw8hu>
+  - We Want to Talk About Kaguya - Chapter 97 - The Unpopular Girl Shouldn’t Talk <https://redd.it/izw8iq>
 - Chapter 98 - We Want to Talk About a New Idea
   - [DISC] We Want to Talk About Kaguya - Chapter 98 - We Want to Talk About a New Idea (Zaibatsu HQ) <https://redd.it/j2wr9w>
+  - We Want to Talk About Kaguya - Chapter 98 - We Want to Talk About a New Idea <https://redd.it/j2wrat>
+  - We Want to Talk About Kaguya - Chapter 98 (Japanese version) <https://redd.it/j0ic11>
 - Chapter 99 - We Want to Talk About Post-Graduation Plans
   - [DISC] We Want to Talk About Kaguya Ch. 99 - We Want to Talk About Post-Graduation Plans <https://redd.it/j5wek4>
+  - We Want To Talk About Kaguya - Chapter 99 <https://redd.it/j5wtnr>
+  - We Want to Talk About Kaguya - Chapter 99 (Japanese version) <https://redd.it/j0ieq1>
 - Chapter 100- We Want to Talk About Cosplay Outfits
   - [DISC] We Want to Talk About Kaguya Ch. 100 <https://redd.it/j6udpj>
+  - We Want To Talk About Kaguya - Chapter 100 <https://redd.it/j6ut11>
 
 ## Chapter 101-current
 
