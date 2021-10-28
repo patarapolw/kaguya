@@ -10,12 +10,11 @@ export async function search(q: string) {
 
   let after: string | undefined;
   while (true) {
-    const d = await api.search(q, after);
+    const d = await api.search(q, { after });
 
     d.data.children.map((c) => {
-      if (c.data.title.startsWith(PREFIX)) {
-        out[c.data.id] = c.data.title;
-      }
+      // if (!c.data.title.startsWith(PREFIX.trim())) return
+      out[c.data.id] = c.data.title;
     });
 
     after = d.data.after;

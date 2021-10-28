@@ -13,12 +13,20 @@ export class RedditAPI {
     },
   });
 
-  async search(q: string, after?: string) {
+  async search(
+    q: string,
+    opts: {
+      subreddit?: string;
+      after?: string | undefined;
+    } = {}
+  ) {
+    const { subreddit, ...query } = opts;
+
     return this.api
       .get(
-        `/search?${qs.stringify({
+        `${subreddit ? `/r/${subreddit}` : ""}/search?${qs.stringify({
           q,
-          after,
+          ...query,
         })}`
       )
       .then(

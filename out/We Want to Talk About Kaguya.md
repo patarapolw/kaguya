@@ -1,370 +1,481 @@
-# We Want to Talk About Kaguya
+Created At: 2021-10-28T06:08:18.999Z
 
-## Chapter 1-50
-
-- Chapter 1 - The Mass Media Club Wants to Talk
-  - [DISC] We Want to Talk About Kaguya :: Chapter 1 :: Jaimini's Box <https://redd.it/931av4>
-- Chapter 2 - I Want to Talk About the Movie Date
-  - We want to talk about Kaguya (4koma) chapter 2 <https://redd.it/958h11>
-- Chapter 3 - I Want to Talk About My Obsession
-  - [DISC] Kaguya Wants To Be Confessed To Spinoff Chapter 3: I Want To Talk About My Obsession <https://redd.it/97e3i1>
-- Chapter 4 - We Want to Talk About Secretary Fujiwara
-  - [DISC] We Want to Talk About Kaguya :: Chapter 4 :: Jaimini's Box <https://redd.it/9au505>
-- Chapter 5 - We Want to Talk With Our Friends
-  - [DISC] We Want to Talk About Kaguya :: Chapter 5 :: Jaimini's Box <https://redd.it/9d14as>
-- Chapter 6 - We Want to Talk About Our Lovestruck Friend
-  - [DISC] We Want to Talk About Kaguya :: Chapter 6 :: Jaimini's Box <https://redd.it/9eu1a0>
-- Chapter 7 - We Want to Talk About Friendship
-  - [DISC] We Want to Talk About Kaguya :: Chapter 7 :: Jaimini's Box <https://redd.it/9gzp4d>
-- Chapter 8 - We Want to Talk About the President's Charm
-  - [DISC] We Want to Talk About Kaguya :: Chapter 8 :: Jaimini's Box <https://redd.it/9iehmt>
-- Chapter 9 - I Want to Talk About the Lost Notebook
+- Chapter 1
+  - We want to talk about Kaguya's Timelines compared to the main manga(Part 1) <https://redd.it/j22phr>
+- Chapter 2
+  - We Want to Talk About Kaguya Vol. 2 Cover &amp; Official Doujin Vol. 3 Cover <https://redd.it/em83g4>
+- Chapter 3
+  - G3Ida's special twitter pics of We Want To Talk About Kaguya <https://redd.it/khw1gi>
+  - G3Ida's special twitter pics of We Want To Talk About Kaguya <https://redd.it/khw7k4>
+  - We Want to Talk About Kaguya Vol. 3 &amp; Kaguya Official Doujin Vol. 4 Covers <https://redd.it/hjsnxc>
+- Chapter 4
+  - [ART] Manga Artist Karen-4koma characters by 坛子鸦 (We Want To Talk About Kaguya) <https://redd.it/lu3mc5>
+- Chapter 5
+  - We Want to Talk About Kaguya - Volume 5 cover <https://redd.it/oyey9v>
+- Chapter 6
+  - **missing**
+- Chapter 7
+  - **missing**
+- Chapter 8
+  - **missing**
+- Chapter 9
+  - Ishigami in We want to talk about Kaguya 9 <https://redd.it/igkl1t>
   - [DISC] We Want to Talk About Kaguya :: Chapter 9 :: Jaimini's Box <https://redd.it/9klxny>
-- Chapter 10 - Erica Kose's Serious Problem, Part 1
-  - [DISC] We Want to Talk About Kaguya Chapter 10 <https://redd.it/9mwx2b>
-- Chapter 11 - We Want to Give Words of Encouragement
-  - [DISC] We Want to Talk About Kaguya :: Chapter 11 :: Jaimini's Box <https://redd.it/9p30jf>
-- Chapter 12 - We Want to Talk About the Bible
+- Chapter 10
+  - **missing**
+- Chapter 11
+  - **missing**
+- Chapter 12
   - [DISC] We Want to Talk About Kaguya :: Chapter 12 :: Jaimini's Box <https://redd.it/9r4yhm>
-- Chapter 13 - I Want to Talk Using the Bible
-  - [DISC] We Want to Talk About Kaguya Ch. 13 <https://redd.it/9vmwll>
-- Chapter 14 - We Want to Talk About the Bug's Intentions
-  - [DISC] We Want to Talk About Kaguya :: Chapter 14 :: Jaimini's Box <https://redd.it/9xg4ph>
-- Chapter 15 - We Want to Talk About Erika's Stress
-  - [DISC] We Want to Talk About Kaguya :: Chapter 15 :: Jaimini's Box <https://redd.it/9yn925>
-- Chapter 16 - We Want to Talk About What Suits Kaguya
-  - [DISC] We Want to Talk About Kaguya :: Chapter 16 :: Jaimini's Box <https://redd.it/a0omy8>
-- Chapter 17 - We Want to Talk About the Cultural Exchange
-  - [DISC] We Want to Talk About Kaguya :: Chapter 17 :: Jaimini's Box <https://redd.it/a2tbjy>
-- Chapter 18 - We Want to Talk About the Fanclub
-  - [DISC] We Want to Talk About Kaguya :: Chapter 18 :: Jaimini's Box <https://redd.it/a5o5fq>
-- Chapter 19 - We Want to Talk About the Divine Situation
-  - [DISC] We Want to Talk About Kaguya :: Chapter 19 :: Jaimini's Box <https://redd.it/a6aq5g>
-- Chapter 20 - I Can't Talk About the Big Scoop
-  - [DISC] We Want to Talk About Kaguya Ch. 20 <https://redd.it/ac0aib>
-- Chapter 21 - We Want to Talk About Our Thoughts on the Play
-  - [DISC] We Want to Talk About Kaguya :: Chapter 21 :: Jaimini's Box <https://redd.it/ah37eo>
-- Chapter 22 - We Want to Talk About Nail Art
+- Chapter 13
+  - **missing**
+- Chapter 14
+  - **missing**
+- Chapter 15
+  - **missing**
+- Chapter 16
+  - **missing**
+- Chapter 17
+  - **missing**
+- Chapter 18
+  - **missing**
+- Chapter 19
+  - **missing**
+- Chapter 20
+  - [Volume 20 extras] Possible future plot point in We Want to Talk About Kaguya <https://redd.it/paahce>
+- Chapter 21
+  - **missing**
+- Chapter 22
   - [DISC] We Want to Talk About Kaguya Ch. 22 <https://redd.it/amot5x>
-- Chapter 23 - We Want to Talk About Karen's Doubts
+- Chapter 23
   - [DISC] We Want to Talk About Kaguya :: Chapter 23 :: Jaimini's Box <https://redd.it/ap1kfq>
-- Chapter 24 - We Want to Talk to the Discipline Committee
+- Chapter 24
   - [DISC] We Want to Talk About Kaguya Ch. 24 <https://redd.it/attsyw>
-- Chapter 25 - We Want to Talk About Club Activities 	Fans Scans | Jaimini's~Box~
+- Chapter 25
   - [DISC] We Want to Talk About Kaguya :: Chapter 25 :: Jaimini's Box <https://redd.it/auwfpe>
-- Chapter 26 - We Want to Talk About Afterschool Activities with Secretary Fujiwara
+- Chapter 26
   - We Want to Talk About Kaguya - Chapter 26 <https://redd.it/aws6en>
-  - We Want to Talk About Kaguya - Chapter 26 <https://redd.it/awsh8h>
-- Chapter 27 - We Want to Talk About Relationship Flags
-  - [DISC] We Want To Talk About Kaguya Chapter 27 <https://redd.it/b5c8ox>
-- Chapter 28 - We Want to Talk About Studying for Exams
+- Chapter 27
+  - **missing**
+- Chapter 28
   - [Disc] We Want to Talk About Kaguya - Ch. 28 <https://redd.it/b9v9v5>
-- Chapter 28.5 - Extra: We Want to Talk About What Someone Dropped in the Early Morning
-  - [DISC] We Want to Talk About Kaguya - Ch. 28.5(Vol. 1 Extra chapter) <https://redd.it/bx1v1y>
-- Chapter 29 - We Want to Talk about Psychological Tests
-  - [Disc] We Want to Talk About Kaguya - Ch. 28 <https://redd.it/b9v9v5>
-    - Chapter 29 is up as well. This leaves only ch. 30 untranslated. The /a/non said he'll translate it some other time.
-- Chapter 30 - We Want to Talk About Karen's New Work
+- Chapter 29
+  - **missing**
+- Chapter 30
   - [DISC]We Want to Talk About Kaguya Ch.30 <https://redd.it/bb0u20>
-- Chapter 31 - We Can't Talk About the New Ghost Story
-  - We Want to Talk About Kaguya- Chapter 31 <https://redd.it/b3w29r>
-- Chapter 32 - Erika Kose's Serious Problem, Part 2
-  - [DISC] We Want to Talk About Kaguya - Ch. 32 <https://redd.it/b6sz4z>
-- Chapter 33 - We Want to Talk About How to Get a Boyfriend
-  - [Disc] We Want to Talk About Kaguya - Ch. 33 <https://redd.it/b9jfi1>
-- Chapter 34 - We Can't Talk About the Godly Situation
-  - [Disc] We Want to Talk About Kaguya - Ch. 34 <https://redd.it/bc4yk0>
-- Chapter 35 - We want to talk about planning a mixer
-  - [DISC] We Want to Talk About Kaguya Chapter 35 <https://redd.it/bepqpe>
-- Chapter 36 - We Want to Talk About The Lack Of Kaguya-sama
-  - [DISC] We Want to Talk About Kaguya - Ch. 36 <https://redd.it/bhbyjm>
-- Chapter 37 - We Want to Talk About Twitter
-  - [DISC] We Want to Talk About Kaguya - Ch. 37 <https://redd.it/bmovsg>
-- Chapter 38 - We Want to Talk About Ramen
-  - [DISC.] We Want to Talk About Kaguya - Ch. 38 <https://redd.it/bp5g6l>
-- Chapter 39 - We Want to talk about the Summer's Sex Appeal
+- Chapter 31
+  - **missing**
+- Chapter 32
+  - **missing**
+- Chapter 33
+  - **missing**
+- Chapter 34
+  - **missing**
+- Chapter 35
+  - **missing**
+- Chapter 36
+  - **missing**
+- Chapter 37
+  - **missing**
+- Chapter 38
+  - **missing**
+- Chapter 39
   - [DISC] We Want to Talk About Kaguya - Ch. 39 <https://redd.it/brtq05>
-- Chapter 40 - We Want to Talk About the Night of the Fireworks
+- Chapter 40
   - [DISC] We Want to Talk About Kaguya - Ch. 40 <https://redd.it/bumnkr>
-- Chapter 41 - Erika Kose's Serious Problem, Part 3
+- Chapter 41
   - [DISC] We Want to Talk About Kaguya - Ch. 41 <https://redd.it/bx4v8b>
-- Chapter 42 - We Want to Talk About Electives
-  - [DISC] We Want To Talk About Kaguya Chapter 42 <https://redd.it/bzzq2j>
-  - [DISC] We Want To Talk About Kaguya Chapter 42 <https://redd.it/bzzppo>
-- Chapter 43 - We Want to Talk About Guilt
+- Chapter 42
+  - **missing**
+- Chapter 43
   - [DISC] We Want to Talk About Kaguya - Ch. 43 <https://redd.it/c3ihgh>
-- Chapter 44 - We Want to Talk About the Relationship of Those Two
+- Chapter 44
   - [DISC] We Want to Talk About Kaguya - Ch. 44 <https://redd.it/c68ox1>
-- Chapter 45 - We Want to Talk About Gossip
+- Chapter 45
   - [Disc] We Want To Talk About Kaguya - Ch. 45 <https://redd.it/cb6zul>
-- Chapter 46 - We Want to Talk About Birthday Cake
+- Chapter 46
   - [DISC] We Want To Talk About Kaguya Ch. 46 <https://redd.it/cc2urz>
-- Chapter 47 - We Want to Talk About Treasurer Ishigami
-  - [DISC] We Want To Talk About Kaguya - Ch. 47 <https://redd.it/cgxvdz>
-- Chapter 48 - We Want to Talk About the Night of the Harvest Moon
-  - We Want To Talk About Kaguya - Ch. 48 <https://redd.it/chtqkv>
-- Chapter 49 - We Want to Talk About Sugoroku
+- Chapter 47
+  - [DISC]We Want To Talk About Kaguya Ch. 47 <https://redd.it/cgxn63>
+- Chapter 48
+  - **missing**
+- Chapter 49
   - [DISC] We Want To Talk About Kaguya - Ch. 49 <https://redd.it/cla1qp>
-- Chapter 50 - We Want to Talk About the Girl From Firis girls' Academy
+- Chapter 50
   - [DISC] We Want To Talk About Kaguya - Ch. 50 <https://redd.it/co9qi8>
-
-## Chapter 51-100
-
-- Chapter 51 - We Want to Talk About Our Results So Far
-  - [DISC] We Want To Talk About Kaguya - Ch. 51 <https://redd.it/ctliy5>
-- Chapter 52 - We Want to Talk About the Student Council Presidential Candidate
+- Chapter 51
+  - **missing**
+- Chapter 52
   - [DISC] We Want To Talk About Kaguya Ch 52 <https://redd.it/cxlh0q>
-- Chapter 53 - We Want to Talk About How to Excite a Man
+- Chapter 53
   - [DISC] We Want To Talk About Kaguya Ch. 53 <https://redd.it/d077lt>
-- Chapter 53.5 - The First Kaguya-sama Fan Club Meeting
+- Chapter 53.5
   - [DISC] We Want to Talk About Kaguya Ch. 53.5 - The First Kaguya-sama Fan Club Meeting <https://redd.it/ji64df>
-- Chapter 54 - We Want to Talk About the lack of President x Kaguya-Sama
+  - We Want to Talk About Kaguya - Chapter 53.5 - The First Kaguya-sama Fan Club Meeting <https://redd.it/ji7sjv>
+- Chapter 54
   - [DISC] We Want To Talk About Kaguya Ch. 54 <https://redd.it/d3xvr2>
-- Chapter 55 - We Want to Talk About the Portrait From the Gods
+- Chapter 55
   - [DISC] We Want To Talk About Kaguya - Ch. 55 <https://redd.it/d6ky6l>
-- Chapter 56 - We Want to Talk about True Love
+  - We Want To Talk About Kaguya - Ch. 55 <https://redd.it/d6ky80>
+- Chapter 56
   - [DISC] We Want To Talk About Kaguya - Ch. 56 <https://redd.it/db5aul>
-- Chapter 57 - We Want to Talk About True Love, Part 2
+- Chapter 57
   - [DISC] We Want To Talk About Kaguya - Ch. 57 <https://redd.it/ddbzo1>
-- Chapter 58 - We Want to Talk About the Student Council Election Bulletin
+  - We Want To Talk About Kaguya - Ch. 57 <https://redd.it/ddbzpf>
+- Chapter 58
   - [DISC] We Want To Talk About Kaguya - Ch. 58 <https://redd.it/di35o9>
-- Chapter 59 - We Want to Talk About What to Call (Former) president Shirogane
+- Chapter 59
   - [DISC] We Want To Talk About Kaguya Ch. 59 <https://redd.it/dld11v>
-- Chapter 60 - We Want to Talk About Miko's Campaign Pledge
-  - [Disc] We Want To Talk About Kaguya - Ch. 60 <https://redd.it/dnkfpn>
-- Chapter 61 - We Want to Talk About the Student Election
+- Chapter 60
+  - **missing**
+- Chapter 61
+  - We Want to Talk About Kaguya - Ch. 61 <https://redd.it/dr4el7>
   - [Disc] We Want to Talk About Kaguya - Ch. 61 <https://redd.it/dr4eo3>
-- Chapter 62 - We want to talk about the new student council member
+- Chapter 62
   - [DISC] We Want To Talk About Kaguya Ch. 62 <https://redd.it/dzczfp>
-- Chapter 63 - We Want to Talk About The Massage Situation
+- Chapter 63
   - [DISC] We Want To Talk About Kaguya Ch. 63 <https://redd.it/e2cg2n>
-- Chapter 64 - We Want To Talk About the Selfie App
+- Chapter 64
   - [DISC] We Want To Talk About Kaguya Ch. 64 <https://redd.it/e3n2ca>
-- Chapter 65 - We Want to Talk About Shoujo Mentality
+- Chapter 65
   - [DISC] We Want To Talk About Kaguya Ch. 65 <https://redd.it/ea5h4o>
-- Chapter 66 - We Want to Talk While Making Faces
+- Chapter 66
   - [DISC] We Want To Talk About Kaguya Ch. 66 <https://redd.it/eetqxr>
-- Chapter 67 - We want to talk about advice partners
+- Chapter 67
   - [DISC] We Want To Talk About Kaguya Ch. 67 <https://redd.it/eglms9>
-- Chapter 68 - we want to talk about girl parties
+  - We Want to Talk About Kaguya 67 promo <https://redd.it/ee42ec>
+- Chapter 68
   - [DISC] We Want To Talk About Kaguya Chapter 68 <https://redd.it/eqlfej>
-- Chapter 69 - We Want to Talk to the Auditing Officer
+  - We Want To Talk About Kaguya - Ch. 68 <https://redd.it/eqlql9>
+- Chapter 69
   - [DISC] We Want To Talk About Kaguya Chapter 69 <https://redd.it/eudlyb>
-- Chapter 70 - The Kaguya-sama Fanclub Wants to Talk
-  - We Want to Talk About Kaguya 70 <https://redd.it/f54g57>
-  - We Want To Talk About Kaguya - Chapter 70 | Guya.moe <https://redd.it/f4wych>
-- Chapter 71 - I Want to Talk Secretly with Hayasaka-san
+  - We Want to Talk About Kaguya 69 <https://redd.it/eudvxa>
+- Chapter 70
+  - **missing**
+- Chapter 71
   - [DISC] We Want To Talk About Kaguya Ch. 71 <https://redd.it/f8e8a6>
-  - We Want to Talk About Kaguya ~~1~~71 <https://redd.it/f8ef4b>
-- Chapter 72 - We Want to Talk About Gathering Comrades
+- Chapter 72
   - [Disc] We Want To Talk About Kaguya - Ch. 72 <https://redd.it/fjaxnq>
-- Chapter 73 - We Want to Talk About Erika's Infidelity
+  - We Want To Talk About Kaguya - Ch. 72 <https://redd.it/fjay6l>
+- Chapter 73
   - [DISC] We Want To Talk About Kaguya Ch. 73 <https://redd.it/fjzueq>
-- Chapter 74 - We can't talk to the cheer team
+  - We Want To Talk About Kaguya - Ch. 73 <https://redd.it/fjzv8q>
+- Chapter 74
   - [DISC] We Want To Talk About Kaguya Ch. 74 <https://redd.it/fokyff>
-- Chapter 75 - We Want to Talk About the sports
+  - We Want To Talk About Kaguya - Chapter 74 | Guya.moe <https://redd.it/folnmi>
+- Chapter 75
   - [DISC] We Want to Talk about Kaguya Ch.75 <https://redd.it/fv1ijx>
-- Chapter 76 - We Want to Talk About the sports festival (2)
+  - We Want To Talk About Kaguya 75 :: guya.moe <https://redd.it/fv63bp>
+- Chapter 76
   - [DISC] We Want To Talk About Kaguya - Chapter 76 | Guya.moe <https://redd.it/fvl4hr>
-- Chapter 77 - We Want to Talk About the sports festival (3)
+  - We Want To Talk About Kaguya 76 :: guya.moe <https://redd.it/fvo591>
+- Chapter 77
   - [DISC] We Want To Talk About Kaguya Ch. 77 <https://redd.it/g03uf1>
-- Chapter 78 - We Want to Talk About the sports festival (4)
+  - We Want To Talk About Kaguya Ch.77 <https://redd.it/g05vip>
+- Chapter 78
   - [DISC] We Want To Talk About Kaguya Ch. 78 <https://redd.it/g5aaw5>
-- Chapter 79 - We Want to Talk About That Game
+  - We Want To Talk About Kaguya - Chapter 78 | Guya.moe <https://redd.it/g5ahr6>
+- Chapter 79
   - [DISC] We Want To Talk About Kaguya Ch. 79 <https://redd.it/g6ogne>
-- Chapter 79.5 - We Want to Talk About the Name of That Game - The Sequel
+  - We Want To Talk About Kaguya - Chapter 79 | Guya.moe <https://redd.it/g6ypy7>
+- Chapter 79.5
   - [DISC] We Want to Talk About Kaguya Ch. 79.5 <https://redd.it/jj5lh8>
-- Chapter 80 - We Want to Talk About the Everyday Love Chat
+  - We Want To Talk About Kaguya - Ch. 79.5 <https://redd.it/jj5zcp>
+- Chapter 80
   - [DISC] We Want To Talk About Kaguya Ch. 80 <https://redd.it/g8kutb>
-- Chapter 81 - We Want to Talk About What Happened at the Mixer (1)
+  - We Want To Talk About Kaguya - Chapter 80 | Guya.moe <https://redd.it/g8pwb5>
+- Chapter 81
   - [DISC] We Want to Talk about Kaguya Ch. 81 <https://redd.it/ggof36>
-- Chapter 82 - We Want to Talk About What Happened at the Mixer (2)
+  - We Want To Talk About Kaguya - Chapter 81 | Guya.moe <https://redd.it/ggsuf8>
+- Chapter 82
   - [DISC] We Want To Talk About Kaguya Ch. 82 <https://redd.it/gk0gn7>
-- Chapter 83 - We Want to Talk About Being Soothed
+  - Ch. 82 (We Want To Talk About Kaguya) - MangaDex <https://redd.it/gk0qtb>
+- Chapter 83
   - [DISC] We Want to Talk About Kaguya Ch. 83 <https://redd.it/gln1o5>
-- Chapter 84 - We Want to Talk About Oyster Fried Rice
+  - We Want To Talk About Kaguya - Chapter 83 | Guya.moe <https://redd.it/glq56o>
+- Chapter 84
   - [DISC] We Want to Talk About Kaguya Ch. 84 <https://redd.it/gqfw1r>
-- Chapter 85 - We Want to Talk About the Incident of Infidelity
+  - We Want to Talk About Kaguya-- Chapter 84 <https://redd.it/gqi6dd>
+- Chapter 85
   - [DISC] We Want to Talk About Kaguya Ch. 85 <https://redd.it/h17y9h>
-- Chapter 86 - We Can't Talk About Cheering Her Up
+  - We Want To Talk About Kaguya - Ch. 85 <https://redd.it/h181rp>
+- Chapter 86
   - [DISC] We Want to Talk About Kaguya Chapter 86 <https://redd.it/hb4a2u>
-- Chapter 87 - The CD Can't Speak
+  - Ch. 86 (We Want to Talk About Kaguya) - MangaDex <https://redd.it/hb4kq6>
+  - We Want to Talk About Kaguya-- Chapter 86 <https://redd.it/hbdi0p>
+- Chapter 87
   - [DISC] We Want to Talk About Kaguya Ch. 87 <https://redd.it/hhlz5p>
-- Chapter 88 - We Want to Talk to the Headmaster
+  - We Want To Talk About Kaguya - Ch. 87 <https://redd.it/hhmdrh>
+- Chapter 88
   - [DISC] We Want to Talk about Kaguya Ch. 88 <https://redd.it/hpfhod>
-- Chapter 89 - We Want to Talk Through Line
+  - We Want To Talk About Kaguya - Ch. 88 <https://redd.it/hpg0he>
+- Chapter 89
   - [DISC] We Want to Talk About Kaguya - Chapter 89 <https://redd.it/hxqs6u>
-- Chapter 90 - We Want to Talk About the Sketchbook
+  - We Want To Talk About Kaguya - Ch. 89 <https://redd.it/hxsq07>
+  - My attempt at cleaning up the sticker Hayasaka sends in the latest chapter (89) of We Want to Talk About Kaguya <https://redd.it/hy0swj>
+- Chapter 90
   - [DISC] We Want to Talk About Kaguya - Chapter 90 <https://redd.it/i2l9qg>
-- Chapter 91 - We Want to Talk to Treasurer Ishigami
+  - We Want To Talk About Kaguya - Chapter 90 | Guya.moe <https://redd.it/i2o8zy>
+  - We Want To Talk About Kaguya - Chapter 90 <https://redd.it/i2q0oy>
+- Chapter 91
   - [DISC] We Want to Talk About Kaguya - Chapter 91 <https://redd.it/ib5vlg>
-- Chapter 92 - I Want to Talk with Toyosaki Saburou
+  - We Want To Talk About Kaguya - Chapter 91 | Guya.moe <https://redd.it/ib5zqz>
+- Chapter 92
   - [DISC] We Want to Talk About Kaguya - Chapter 92 <https://redd.it/ientk4>
-- Chapter 93 - We Want to Talk about Our Enthusiasm for the Exam
+- Chapter 93
   - [DISC] We Want to Talk About Kaguya - Chapter 93 <https://redd.it/iergtu>
-- Chapter 94 - We Want to Talk at a Sleepover
+  - We Want to Talk about Kaguya - Chapter 93! <https://redd.it/ies3ak>
+- Chapter 94
+  - We Want To Talk About Kaguya - Ch. 94 <https://redd.it/ise29t>
   - [DISC] We Want to Talk About Kaguya - Chapter 94 <https://redd.it/isd0bn>
-- Chapter 95 - We Want to Talk about Romance Between Guys
+- Chapter 95
+  - We Want To Talk About Kaguya - Ch. 95 <https://redd.it/iu7ihg>
   - [DISC] We Want to Talk About Kaguya - Chapter 95 - We Want to Talk about Romance between Guys (Zaibatsu HQ) <https://redd.it/iu5bal>
-- Chapter 96 - We Want to Talk about the President’s Rap
+- Chapter 96
   - [DISC] We Want to Talk About Kaguya - Chapter 96 - We Want to Talk about the President’s Rap (Zaibatsu HQ) <https://redd.it/ixe3sj>
-- Chapter 97 - The Unpopular Girl Shouldn’t Talk
+  - We Want to Talk About Kaguya - Chapter 96 - We Want to Talk about the President’s Rap <https://redd.it/ixe3te>
+- Chapter 97
   - [DISC] We Want to Talk About Kaguya - Chapter 97 - The Unpopular Girl Shouldn’t Talk (Zaibatsu HQ) <https://redd.it/izw8hu>
-- Chapter 98 - We Want to Talk About a New Idea
+  - We Want to Talk About Kaguya - Chapter 97 - The Unpopular Girl Shouldn’t Talk <https://redd.it/izw8iq>
+- Chapter 98
   - [DISC] We Want to Talk About Kaguya - Chapter 98 - We Want to Talk About a New Idea (Zaibatsu HQ) <https://redd.it/j2wr9w>
-- Chapter 99 - We Want to Talk About Post-Graduation Plans
+  - We Want to Talk About Kaguya - Chapter 98 - We Want to Talk About a New Idea <https://redd.it/j2wrat>
+  - We Want to Talk About Kaguya - Chapter 98 (Japanese version) <https://redd.it/j0ic11>
+- Chapter 99
+  - We Want To Talk About Kaguya - Chapter 99 <https://redd.it/j5wtnr>
   - [DISC] We Want to Talk About Kaguya Ch. 99 - We Want to Talk About Post-Graduation Plans <https://redd.it/j5wek4>
-- Chapter 100- We Want to Talk About Cosplay Outfits
+  - We Want to Talk About Kaguya - Chapter 99 (Japanese version) <https://redd.it/j0ieq1>
+- Chapter 100
+  - We Want To Talk About Kaguya - Chapter 100 <https://redd.it/j6ut11>
   - [DISC] We Want to Talk About Kaguya Ch. 100 <https://redd.it/j6udpj>
-
-## Chapter 101-current
-
-- Chapter 101 - We Want to Talk About the Kita High Culture Festival
+  - We Want to Talk About Kaguya - Chapter 100 (Japanese version) <https://redd.it/j0ifos>
+- Chapter 101
   - [DISC] We Want to Talk About Kaguya - Chapter 101 - We Want to Talk About the Kita High Culture Festival (Zaibatsu HQ) <https://redd.it/japu1d>
   - We Want to Talk About Kaguya - Chapter 101 - We Want to Talk About the Kita High Culture Festival <https://redd.it/japu29>
-- Chapter 102 - We Want to Talk with the Fesco
+- Chapter 102
   - [DISC] We Want to Talk About Kaguya - Chapter 102 - We Want to Talk with the Fesco (Zaibatsu HQ) <https://redd.it/jb22oy>
   - We Want to Talk About Kaguya - Chapter 102 - We Want to Talk with the Fesco <https://redd.it/jb22pk>
-- Chapter 103 - To Talk About the Culture Festival
+- Chapter 103
   - [DISC] We Want to Talk About Kaguya - Chapter 103 - To Talk About the Culture Festival (Zaibatsu HQ) <https://redd.it/jc1onc>
   - We Want to Talk About Kaguya - Chapter 103 - To Talk About the Culture Festival <https://redd.it/jc1oo5>
-- Chapter 104 - We Want to Talk About the Legend of the Devoted Heart
-  - [DISC] We Want to Talk About Kaguya - Ch. 104 <https://redd.it/ji65g4>
+- Chapter 104
   - We Want to Talk About Kaguya - Chapter 104 - We Want to Talk About the Legend of the Devoted Heart <https://redd.it/ji65h3>
-- Chapter 105 - We Want to Talk with the Club President
+  - [DISC] We Want to Talk About Kaguya - Ch. 104 <https://redd.it/ji65g4>
+- Chapter 105
   - [DISC] We Want to Talk About Kaguya :: Chapter 105 <https://redd.it/jk9u06>
   - We Want to Talk About Kaguya - Chapter 105 - We Want to Talk with the Club President <https://redd.it/jk9u15>
-- Chapter 105.5 - We Want to Talk About Men's Fashion
+- Chapter 105.5
   - [DISC] We Want to Talk About Kaguya - Chapter 105.5 (Zaibatsu HQ) <https://redd.it/lzwv19>
-- Chapter 106 - We Want to Talk at the Culture Festival, Day 1, Part 1
-  - [DISC] We Want to Talk About Kaguya - Ch. 106 <https://redd.it/jtya4l>
+- Chapter 106
   - We Want to Talk About Kaguya - Chapter 106 - We Want to Talk at the Culture Festival, Day 1, Part 1 <https://redd.it/jtya4z>
-- Chapter 107 - We Want to Talk at the Culture Festival, Day 1, Part 2
+  - [DISC] We Want to Talk About Kaguya - Ch. 106 <https://redd.it/jtya4l>
+- Chapter 107
   - [DISC] We Want to Talk About Kaguya - Ch. 107 (Zaibatsu HQ) <https://redd.it/jxg02k>
   - We Want to Talk About Kaguya - Chapter 107 - We Want to Talk at the Culture Festival, Day 1, Part 2 <https://redd.it/jxg03l>
-- Chapter 108 - We Want to Talk at the Culture Festival, Day 1, Part 3
+- Chapter 108
   - [DISC] We Want to Talk About Kaguya (Chapter 108) (Zaibatsu HQ) <https://redd.it/k3atzp>
   - We Want to Talk About Kaguya - Chapter 108 - We Want to Talk at the Culture Festival, Day 1, Part 3 <https://redd.it/k3au0m>
-- Chapter 109 - We Want to Talk at the Culture Festival, Day 1, Part 4
+- Chapter 109
   - [DISC] We Want to Talk About Kaguya :: Ch. 109 (Zaibatsu HQ) <https://redd.it/k6n6mp>
   - We Want to Talk About Kaguya - Chapter 109 - We Want to Talk at the Culture Festival, Day 1, Part 4 <https://redd.it/k6n6nx>
-- Chapter 110 - We Want to Talk at the Culture Festival, Day 2, Part 1
+- Chapter 110
   - [DISC] We Want to Talk About Kaguya :: Ch. 110 (Zaibatsu HQ) <https://redd.it/kb3x88>
   - We Want to Talk About Kaguya - Chapter 110 - We Want to Talk at the Culture Festival, Day 2, Part 1 <https://redd.it/kb3x97>
-- Chapter 111 - We Want to Talk at the Culture Festival, Day 2, Part 2
+- Chapter 111
   - [DISC] We Want to Talk About Kaguya (Chapter 111) (Zaibatsu HQ) <https://redd.it/kg07zu>
   - We Want to Talk About Kaguya - Chapter 111 - We Want to Talk at the Culture Festival, Day 2, Part 2 <https://redd.it/kg080p>
-- Chapter 112 - We Want to Talk at the Culture Festival, Day 2, Part 3
-  - [DISC] We Want to Talk About Kaguya (Chapter 112) (Zaibatsu HQ) <https://redd.it/kkfenu>
+- Chapter 112
   - We Want to Talk About Kaguya - Chapter 112 - We Want to Talk at the Culture Festival, Day 2, Part 3 <https://redd.it/kkfeob>
-- Chapter 113 - We Want to Talk at the Culture Festival, Day 2, Part 4
+  - [DISC] We Want to Talk About Kaguya (Chapter 112) (Zaibatsu HQ) <https://redd.it/kkfenu>
+- Chapter 113
   - [DISC] We Want to Talk About Kaguya :: Ch. 113 (Zaibatsu HQ) <https://redd.it/ksq48a>
   - We Want to Talk About Kaguya - Chapter 113 - We Want to Talk at the Culture Festival, Day 2, Part 4 <https://redd.it/ksq497>
-- Chapter 114 - We Want to Talk at the Culture Festival, Day 2, Part 5
-  - [DISC] We Want to Talk About Kaguya :: Chapter 114 (Zaibatsu HQ) <https://redd.it/l3hw5n>
+- Chapter 114
   - We Want to Talk About Kaguya - Chapter 114 - We Want to Talk at the Culture Festival, Day 2, Part 5 <https://redd.it/l3hw6u>
-- Chapter 115 - We Want to Talk at the Culture Festival, Day 2, Part 6
-  - [DISC] We Want to Talk About Kaguya - Ch. 115 (Zaibatsu HQ) <https://redd.it/l9f628>
+  - [DISC] We Want to Talk About Kaguya :: Chapter 114 (Zaibatsu HQ) <https://redd.it/l3hw5n>
+- Chapter 115
   - We Want to Talk About Kaguya - Chapter 115 - We Want to Talk at the Culture Festival, Day 2, Part 6 <https://redd.it/l9f63a>
-- Chapter 116 - We Want to Talk About Rare Kaguya-sama
+  - [DISC] We Want to Talk About Kaguya - Ch. 115 (Zaibatsu HQ) <https://redd.it/l9f628>
+- Chapter 116
   - [DISC] We Want to Talk About Kaguya :: Chapter 116 (Zaibatsu HQ) <https://redd.it/lcm3gq>
   - We Want to Talk About Kaguya - Chapter 116 - We Want to Talk About Rare Kaguya-sama <https://redd.it/lcm3hx>
-- Chapter 117 - We Want to Talk About Christmas Plans
+- Chapter 117
   - [DISC] We Want to Talk About Kaguya - Ch. 117 (Zaibatsu HQ) <https://redd.it/lnp2wp>
   - We Want to Talk About Kaguya - Chapter 117 - We Want to Talk About Christmas Plans <https://redd.it/lnp2xp>
-- Chapter 118 - We Want to Talk on the Way Back from School
+- Chapter 118
   - [DISC] We Want to Talk About Kaguya Ch. 118 <https://redd.it/lumkhf>
   - We Want To Talk About Kaguya - Chapter 118 - Late One Day in School <https://redd.it/lunnw1>
-- Chapter 119 - We Want to Talk About the Smell of Perfume
+- Chapter 119
   - [DISC] We Want to Talk About Kaguya (Chapter 119) (Zaibatsu HQ) <https://redd.it/lz1sko>
   - We Want to Talk About Kaguya - Chapter 119 - We Want to Talk About the Smell of Perfume <https://redd.it/lz1sln>
-- Chapter 120 - We Want to Talk About the Christmas Party
+- Chapter 120
   - [DISC] We Want to Talk About Kaguya - Chapter 120 <https://redd.it/m3qbx4>
   - We Want To Talk About Kaguya - Chapter 120 - We Want to Talk About the Christmas Party <https://redd.it/m3q9lr>
   - We Want To Talk About Kaguya - Chapter 120 - We Want to Talk About the Christmas Party <https://redd.it/m3rpa2>
-- Chapter 121 - We Want to Talk About the President's Condition
+- Chapter 121
   - [DISC] We Want To Talk About Kaguya - Chapter 121 (Zaibatsu HQ) <https://redd.it/m8zt0s>
   - We Want to Talk About Kaguya - Chapter 121 <https://redd.it/m9075l>
-- Chapter 122 - We Want to Talk About the President's Health
-  - [DISC] We Want To Talk About Kaguya - Chapter 122 (Zaibatsu HQ) <https://redd.it/me7twl>
+- Chapter 122
   - We Want to Talk About Kaguya - Chapter 122 - We Want to Talk About the President's Health <https://redd.it/me83sf>
-- Chapter 123 - We Want to Talk About Choosing Presents
+  - [DISC] We Want To Talk About Kaguya - Chapter 122 (Zaibatsu HQ) <https://redd.it/me7twl>
+- Chapter 123
   - [DISC] We Want to Talk About Kaguya - Chapter 123 <https://redd.it/mkj5ae>
   - We Want to Talk About Kaguya - Chapter 123 - We Want to Talk About Choosing Presents <https://redd.it/mkj4dy>
-- Chapter 124 - The Shiptrash Says too Much
-  - [DISC] We Want to Talk About Kaguya - Chapter 124 <https://redd.it/mpb0e8>
+- Chapter 124
   - We Want to Talk About Kaguya - Chapter 124 - The Shiptrash Says Too Much <https://redd.it/mpatrp>
-- Chapter 125 - I Can't Talk on Christmas Eve
+  - [DISC] We Want to Talk About Kaguya - Chapter 124 <https://redd.it/mpb0e8>
+- Chapter 125
   - [DISC] We Want to Talk About Kaguya - Chapter 125 <https://redd.it/mtjanu>
   - We Want to Talk About Kaguya - Chapter 125 - I can't Talk on Christmas Eve <https://redd.it/mtja0z>
-- Chapter 126 - We Want to Talk at the End of the Semester
-  - [DISC] We Want to Talk About Kaguya - Chapter 126 <https://redd.it/mzq4eu>
+- Chapter 126
   - We Want to Talk About Kaguya - Chapter 126 - We Want to Talk at the End of the Semester <https://redd.it/mzq5di>
-- Chapter 127 - We Can't Talk on December 27
+  - [DISC] We Want to Talk About Kaguya - Chapter 126 <https://redd.it/mzq4eu>
+- Chapter 127
   - [DISC] We Want to Talk About Kaguya - Chapter 127 <https://redd.it/n7uw77>
   - We Want to Talk About Kaguya - Chapter 127 - We Can't Talk on December 27 <https://redd.it/n7ux19>
-- Chapter 128 - We Want to Talk at the TG Club Training Camp
+- Chapter 128
   - [DISC] We Want to Talk About Kaguya - Chapter 128 <https://redd.it/nkmip8>
   - We Want to Talk About Kaguya - 128 - We Want to Talk at the TG Club Training Camp <https://redd.it/nkmi42>
-- Chapter 129 - We Want to Talk at Hatsumōde
+- Chapter 129
   - [DISC] We Want to Talk About Kaguya - Chapter 129 <https://redd.it/npon4o>
   - We Want to Talk About Kaguya - Chapter 129 - We Want to Talk at Hatsumōde <https://redd.it/nponvi>
   - We Want to Talk About Kaguya - Chapter 129 (Japanese version) <https://redd.it/nmf289>
-- Chapter 130 - We Want to Talk about Ultra Spicy Ramen
-  - [DISC] We Want to Talk About Kaguya - Chapter 130 <https://redd.it/nu3pmu>
+- Chapter 130
   - We Want to Talk About Kaguya - Chapter 130 - We Want to Talk About Ultra Spicy Ramen <https://redd.it/nu3si5>
-- Chapter 131 - We Want to Talk About Karen's Post-Graduation Plans
-  - [DISC] We Want to Talk About Kaguya - Chapter 131 <https://redd.it/nzk5w2>
+  - [DISC] We Want to Talk About Kaguya - Chapter 130 <https://redd.it/nu3pmu>
+- Chapter 131
   - We Want to Talk About Kaguya - Chapter 131 - We Want to Talk About Karen's Post-Graduation Plans <https://redd.it/nzk5kl>
-- Chapter 132 - We Want to Talk at the Start of the New Semester
+  - [DISC] We Want to Talk About Kaguya - Chapter 131 <https://redd.it/nzk5w2>
+- Chapter 132
   - [DISC] We Want to Talk About Kaguya - Chapter 132 <https://redd.it/o4c6fc>
   - We Want to Talk About Kaguya - Chapter 132 - We Want to Talk at the Start of the New Semester <https://redd.it/o4c5ey>
-- Chapter 133 - We Want to Talk About First Kisses
+- Chapter 133
   - [DISC] We Want to Talk About Kaguya - Chapter 133 <https://redd.it/o9p92d>
   - We Want to Talk About Kaguya - Chapter 133 - We Want to Talk About First Kisses <https://redd.it/o9p8lg>
-- Chapter 134 - We Want to Talk About Broken Bone Situations
+- Chapter 134
   - [DISC] We Want to Talk About Kaguya - Chapter 134 <https://redd.it/odzy6z>
   - We Want to Talk About Kaguya - Chapter 134 - We Want to Talk About Broken Bone Situations <https://redd.it/odzxog>
-- Chapter 135 - We Want to Talk About What We Realized
-  - [DISC] We Want to Talk About Kaguya - Chapter 135 <https://redd.it/oityt2>
+- Chapter 135
   - We Want to Talk About Kaguya - Chapter 135 - We Want to Talk About What We Realized <https://redd.it/oity99>
-- Chapter 136 - We Want to Talk About Pranks
+  - [DISC] We Want to Talk About Kaguya - Chapter 135 <https://redd.it/oityt2>
+- Chapter 136
   - [DISC] We Want to Talk About Kaguya - Chapter 136 <https://redd.it/omw0w3>
   - We Want to Talk About Kaguya - Chapter 136 - We Want to Talk About Pranks <https://redd.it/omw1bg>
-- Chapter 137 - We Want to Talk About Guys Who Work Out
-  - [DISC] We Want to Talk About Kaguya - Chapter 137 <https://redd.it/owldn2>
+- Chapter 137
   - We Want to Talk About Kaguya - Chapter 137 - We Want to Talk About Guys Who Work Out <https://redd.it/owld70>
-- Chapter 138 - We Want to Talk About How To Avoid Love Stories
+  - [DISC] We Want to Talk About Kaguya - Chapter 137 <https://redd.it/owldn2>
+- Chapter 138
   - [DISC] We Want to Talk About Kaguya - Chapter 138 <https://redd.it/paf7uj>
   - We Want to Talk About Kaguya - Chapter 138 - We Want to Talk About How to Avoid Love Stories <https://redd.it/paf8r0>
-- Chapter 139 - We Want to Talk About NTR
+- Chapter 139
   - [DISC] We Want to Talk About Kaguya - Chapter 139 <https://redd.it/pep7ep>
   - We Want to Talk About Kaguya - Chapter 139 - We Want to Talk About NTR <https://redd.it/pep8jg>
   - We Want to Talk About Kaguya 139 japanese raw <https://redd.it/pci7a9>
-- Chapter 140 - We Want to Talk About Sleeping Beauty on the Benc
+- Chapter 140
   - [DISC] We Want to Talk About Kaguya - Chapter 140 <https://redd.it/pl67hz>
   - We Want to Talk About Kaguya - Chapter 140 - We Want to Talk About Sleeping Beauty on the Bench <https://redd.it/pl68a4>
-- Chapter 141 - We Want to Talk About Cherry Stems
-  - [DISC] We Want to Talk About Kaguya - Chapter 141 <https://redd.it/pol1le>
+- Chapter 141
   - We Want to Talk About Kaguya - Chapter 141 - We Want to Talk About Cherry Stems <https://redd.it/pol0wr>
-- Chapter 142 - We Want to Talk About Men’s Competitions
+  - [DISC] We Want to Talk About Kaguya - Chapter 141 <https://redd.it/pol1le>
+- Chapter 142
   - [DISC] We Want to Talk About Kaguya - Chapter 142 <https://redd.it/pss7dn>
   - We Want to Talk About Kaguya - Chapter 142 - We Want to Talk About Men’s Competitions <https://redd.it/pss995>
-- Chapter 143 - We Want to Talk About Imaginary Dates
+- Chapter 143
   - [DISC] We Want to Talk About Kaguya - Chapter 143 <https://redd.it/pyk5rk>
   - We Want to Talk About Kaguya - Chapter 143 - We Want to Talk About Imaginary Dates <https://redd.it/pyk5c9>
   - [Raw spoilers] We want to talk about Kaguya 143 &amp; 144 <https://redd.it/pycfyi>
-- Chapter 144 - We Want to Talk About How to Escort
-  - [DISC] We Want to Talk About Kaguya - Chapter 144 <https://redd.it/q306nz>
+- Chapter 144
   - We Want to Talk About Kaguya - Chapter 144 - We Want to Talk About How to Escort <https://redd.it/q304um>
-- Chapter 145 - We Want to Talk About Plans for the School Trip
+  - [DISC] We Want to Talk About Kaguya - Chapter 144 <https://redd.it/q306nz>
+- Chapter 145
   - [DISC] We want to talk about Kaguya - Chapter 145 <https://redd.it/q7ewng>
   - We Want to Talk About Kaguya - Chapter 145 - We Want to Talk About Plans for the School Trip <https://redd.it/q7fcgo>
   - [RAW] We Want to Talk About Kaguya chapter 145 <https://redd.it/q33jhk>
-- Chapter 146 - We Want to Talk on the School Trip, Day 1, Part 1
+- Chapter 146
   - [DISC] We Want to Talk About Kaguya - Chapter 146 <https://redd.it/qbi63q>
   - We Want to Talk About Kaguya - Chapter 146 - We Want to Talk on the School Trip, Day 1, Part 1 <https://redd.it/qbi5dj>
-- Chapter 147 - We Want to Talk on the School Trip, Day 1, Part 2
+  - [RAW] We Want to Talk About Kaguya 146 <https://redd.it/q7wfp7>
+- Chapter 147
   - [DISC] We Want To Talk About Kaguya - Chapter 147 <https://redd.it/qgzt90>
   - We Want to Talk About Kaguya - Chapter 147 - We Want to Talk on the School Trip, Day 1, Part 2 <https://redd.it/qgzufh>
   - [Japanese RAW] We Want to Talk About Kaguya 147 <https://redd.it/qcpmu0>
+- Chapter 148
+  - **missing**
+- Chapter 149
+  - **missing**
+- Chapter 150
+  - **missing**
+- Chapter 151
+  - **missing**
+- Chapter 152
+  - **missing**
+- Chapter 153
+  - **missing**
+- Chapter 154
+  - **missing**
+- Chapter 155
+  - **missing**
+- Chapter 156
+  - **missing**
+- Chapter 157
+  - **missing**
+- Chapter 158
+  - **missing**
+- Chapter 159
+  - **missing**
+- Chapter 160
+  - **missing**
+- Chapter 161
+  - **missing**
+- Chapter 162
+  - **missing**
+- Chapter 163
+  - **missing**
+- Chapter 164
+  - **missing**
+- Chapter 165
+  - **missing**
+- Chapter 166
+  - **missing**
+- Chapter 167
+  - **missing**
+- Chapter 168
+  - **missing**
+- Chapter 169
+  - **missing**
+- Chapter 170
+  - **missing**
+- Chapter 171
+  - We Want to Talk About Kaguya 171 <https://redd.it/f8ef4b>
+- Chapter 172
+  - **missing**
+- Chapter 173
+  - **missing**
+- Chapter 174
+  - **missing**
+- Chapter 175
+  - **missing**
+- Chapter 176
+  - **missing**
+- Chapter 177
+  - **missing**
+- Chapter 178
+  - **missing**
+- Chapter 179
+  - **missing**
+- Chapter 180
+  - **missing**
+- Chapter 181
+  - **missing**
+- Chapter 182
+  - **missing**
+- Chapter 183
+  - **missing**
+- Chapter 184
+  - **missing**
+- Chapter 185
+  - **missing**
+- Chapter 186
+  - **missing**
+- Chapter 187
+  - link between we want to talk about kaguya and the main series in chapter 187 <https://redd.it/gmb0x9>
