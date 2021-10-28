@@ -1,4 +1,5 @@
 module.exports = {
+  description: "Reddit discussion for Kaguya-sama: Love Is War",
   themeConfig: {
     nav: [
       { text: "Manga", link: "/" },

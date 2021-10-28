@@ -4,7 +4,7 @@ See [/docs](/docs).
 
 ## Reddit API scraping
 
-- Create `./secret.json` with credentials from <https://www.reddit.com/prefs/apps>. See <https://github.com/reddit-archive/reddit/wiki/OAuth2>.
+- Create `/secret.json` with credentials from <https://www.reddit.com/prefs/apps>. See <https://github.com/reddit-archive/reddit/wiki/OAuth2>.
 
 ```json
 {
@@ -14,7 +14,7 @@ See [/docs](/docs).
 }
 ```
 
-- Authorize first (i.e. create `./token.json` programmatically) by running `yarn ts src/authorize.ts`
+- Authorize first (i.e. create `/token.json` programmatically) by running `yarn ts src/authorize.ts`
 - Run either
   - `yarn ts src/search.ts <KEYWORDS>` (e.g. `yarn ts src/search.ts kaguya talk`)
   - `yarn ts src/main.ts` for main manga
