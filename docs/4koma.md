@@ -409,6 +409,6 @@
   - We Want to Talk About Kaguya - Chapter 147 - We Want to Talk on the School Trip, Day 1, Part 2 <https://redd.it/qgzufh>
   - [Japanese RAW] We Want to Talk About Kaguya 147 <https://redd.it/qcpmu0>
 
-## Relationship to the main series
+# Relationship to the main series
 
 See <https://docs.google.com/spreadsheets/d/14x97La4KbmlsMMXYWHN3Vvfjd9MxY6fPSoXGrMxHbMQ/edit?usp=sharing>.

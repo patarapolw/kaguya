@@ -600,14 +600,14 @@
 - Chapter 242 - The Shinomiya Family
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 242 <https://redd.it/qhk1uy>
 
-## Kaguya Wants to be Confessed To Darkness
+# Kaguya Wants to be Confessed To Darkness
 
 - Kaguya Wants to be Confessed To Darkness
   - [DISC] Kaguya Wants to be Confessed To Darkness <https://redd.it/6bz7pp>
 - Kaguya Wants to Be Confessed to, Darkness (Vol 2)
   - [DISC] Kaguya Wants to Be Confessed to, Darkness (Vol 2) <https://redd.it/78bn1t>
 
-## Spin offs
+# Spin offs
 
 - [We Want to Talk About Kaguya](/4koma)
 - [Kaguya Wants to be Confessed to Official Doujin](/doujin)
