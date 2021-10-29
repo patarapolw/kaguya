@@ -3,134 +3,134 @@
 ## Chapter 1-50
 
 - Chapter 1 - I Want to be Invited to a Movie
-  - Chapter 1 <https://redd.it/3u1c9w>
+  - [DISC] Kaguya Wants to be Confessed to: The Geniuses' War of Love and Brains CH.1 <https://redd.it/3u1c9w>
   - [DISC] Kaguya wants to be confessed to ch. 1 (official colored scans) <https://redd.it/9upcrk>
 - Chapter 2 - I Want to Play Old Maid
-  - Chapter 2 <https://redd.it/3ufrsn>
+  - [DISC] Kaguya Wants to be Confessed to: The Geniuses' War of Love and Brains CH.2 <https://redd.it/3ufrsn>
   - [DISC] Kaguya wants to be confessed to ch. 02 (Official Colored Scans) <https://redd.it/9w40ja>
 - Chapter 3 - Kaguya Doesn't Know Much
-  - Chapter 3 <https://redd.it/3uod5f>
+  - [DISC] Kaguya Wants to be Confessed to: The Geniuses' War of Love and Brains Ch.3 <https://redd.it/3uod5f>
 - Chapter 4 - Miyuki Shirogane Wants to Answer
-  - Chapter 4 <https://redd.it/3uywtd>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 4 <https://redd.it/3uywtd>
 - Chapter 5 - Kaguya Wants to Eat
-  - Chapter 5 <https://redd.it/3v89mq>
+  - [DISC] Kaguya Wants to be Confessed To ch 5 <https://redd.it/3v89mq>
 - Chapter 5.5 - Extra Chapter
   - **missing**
 - Chapter 6 - Miyuki Shirogane Wants to Hide
-  - Chapter 6 <https://redd.it/3vdzc8>
+  - [DISC] Kaguya Wants to be Confessed to: The Geniuses' War of Love and Brains Ch. 6 <https://redd.it/3vdzc8>
 - Chapter 7 - Fujiwara Wants to Go On a Trip
-  - Chapter 7 <https://redd.it/3vvsn3>
+  - [DISC] Kaguya-sama Wants to be Confessed To ch 7 <https://redd.it/3vvsn3>
 - Chapter 8 - Kaguya Wants to be Answered
-  - Chapter 8 <https://redd.it/3vwax1>
+  - [DISC] Kaguya Wants to be Confessed To CH.8 <https://redd.it/3vwax1>
 - Chapter 9 - Kaguya Wants to Walk
-  - Chapter 9 <https://redd.it/3x992e>
+  - [DISC] Kaguya Wants to be Confessed To Ch. 9 <https://redd.it/3x992e>
 - Chapter 10 - The Student Council Wants to Play a Prank
-  - Chapter 10 <https://redd.it/423orf>
+  - [DISC] Kaguya-sama Wants to be Confessed To: The Geniuses' War of Love and Brains ch 10 <https://redd.it/423orf>
 - Chapter 10.5 - Volume 1 Extras
   - **missing**
 - Chapter 11 - Kaguya Wants to Exchange
-  - Chapter 11 <https://redd.it/4crdka>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 11 and 12 <https://redd.it/4crdka>
 - Chapter 12 - Kaguya Wants to be Stopped
-  - Chapter 12 <https://redd.it/4crdka>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 11 and 12 <https://redd.it/4crdka>
 - Chapter 13 - Kaguya Wants to be Indirect
-  - Chapter 13 <https://redd.it/4dpg28>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 13 <https://redd.it/4dpg28>
 - Chapter 14 - Miyuki Shirogane Hasn't Done It
-  - Chapter 14 <https://redd.it/4durk4>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 14 <https://redd.it/4durk4>
 - Chapter 15 - Miyuki Shirogane Wants to Flee
-  - Chapter 15 <https://redd.it/4f4jig>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 15 <https://redd.it/4f4jig>
 - Chapter 16 - Kaguya Wants to Do Well
-  - Chapter 16 <https://redd.it/4g04j2>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 16 <https://redd.it/4g04j2>
 - Chapter 17 - Kaguya Wants to Adore
-  - Chapter 17 <https://redd.it/4hckcq>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 17 <https://redd.it/4hckcq>
 - Chapter 18 - The Student Council Wants to Talk
-  - Chapter 18 <https://redd.it/4j4vj3>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 18 <https://redd.it/4j4vj3>
 - Chapter 19 - Kaguya Wants to be Sent
-  - Chapter 19 <https://redd.it/4k5zf3>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 19 <https://redd.it/4k5zf3>
 - Chapter 20 - Miyuki Shirogane Wants to Speak
-  - Chapter 20 <https://redd.it/4l8yiw>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 20 <https://redd.it/4l8yiw>
 - Chapter 20.5 - Volume 2 Extras
   - **missing**
 - Chapter 21 - Kaguya Wants to Have Held
-  - Chapter 21 <https://redd.it/4m9daj>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 21 <https://redd.it/4m9daj>
 - Chapter 22 - Chika Fujiwara Wants to be Eaten
-  - Chapter 22 <https://redd.it/4net4w>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 22 <https://redd.it/4net4w>
 - Chapter 23 - Miyuki Shirogane Wants to Show Off
-  - Chapter 23 <https://redd.it/4ogijf>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 23 <https://redd.it/4ogijf>
 - Chapter 24 - Yu Ishigami Wants to Survive
-  - Chapter 24 <https://redd.it/4pja7f>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 24 <https://redd.it/4pja7f>
 - Chapter 25 - Kaguya Wants to be Noticed
-  - Chapter 25 <https://redd.it/4rssx0>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 25 <https://redd.it/4rssx0>
 - Chapter 26 - Miyuki Shirogane Wants to Work
-  - Chapter 26 <https://redd.it/4t1d03>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 26 <https://redd.it/4t1d03>
 - Chapter 27 - Kaguya Wants to Endure
-  - Chapter 27 <https://redd.it/4tzqty>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 27 <https://redd.it/4tzqty>
 - Chapter 27.5 - Extra Chapter
   - **missing**
 - Chapter 28 - Chika Fujiwara Wants to Test
-  - Chapter 28 <https://redd.it/4v8nqd>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 28 <https://redd.it/4v8nqd>
 - Chapter 29 - Kaguya Wants to be Joined
-  - Chapter 29 <https://redd.it/4w8gws>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 29 <https://redd.it/4w8gws>
 - Chapter 30 - Ai Hayasaka Wants to Defend
-  - Chapter 30 <https://redd.it/4x9c3j>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 30 <https://redd.it/4x9c3j>
 - Chapter 30.5 - Volume 3 Extras
   - **missing**
-- Chapter 31 - Miyuki Shirogane
-  - Chapter 31 <https://redd.it/4zm23e>
+- Chapter 31 - Miyuki Shirogane Can't Lose
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 31 <https://redd.it/4zm23e>
 - Chapter 32 - Kaguya Wants to be Hated
-  - Chapter 32 <https://redd.it/50vcyq>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 32 <https://redd.it/50vcyq>
 - Chapter 33 - Kaguya Wants to Offer
-  - Chapter 33 <https://redd.it/51vy9i>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 33 <https://redd.it/51vy9i>
 - Chapter 34 - Chika Fujiwara Wants to Visit
-  - Chapter 34 <https://redd.it/5309g5>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 34 <https://redd.it/5309g5>
 - Chapter 35 - Regarding Kaguya Shinomiya, Part 1
-  - Chapter 35 <https://redd.it/53w9jv>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 35 <https://redd.it/53w9jv>
 - Chapter 36 - Miyuki Shirogane Wants to Sing
-  - Chapter 36 <https://redd.it/556l5j>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 36 <https://redd.it/556l5j>
 - Chapter 37 - Kaguya Won't Relent
-  - Chapter 37 <https://redd.it/569dlr>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 37 <https://redd.it/569dlr>
 - Chapter 38 - Kaguya Wants to Forgive
-  - Chapter 38 <https://redd.it/57eyga>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 38 <https://redd.it/57eyga>
 - Chapter 39 - Kaguya Wants to be Called
-  - Chapter 39 <https://redd.it/58ptg2>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains CH 39 <https://redd.it/58ptg2>
 - Chapter 40 - Miyuki Shirogane Wants to Go on a Trip
-  - Chapter 40 <https://redd.it/59rmca>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 40 <https://redd.it/59rmca>
 - Chapter 40.5 - Volume 4 Extras
   - Kaguya Wants to be Confessed To Ch. 40.5 Volume 4 Extras <https://redd.it/5uldm6>
 - Chapter 41 - Miyuki Shirogane Wants to Meet
-  - Chapter 41 <https://redd.it/5blrrj>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 41 <https://redd.it/5blrrj>
 - Chapter 42 - Ai Hayasaka Wants to Soak
-  - Chapter 42 <https://redd.it/5cosra>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 42 <https://redd.it/5cosra>
 - Chapter 43 - Chika Fujiwara Really Wants to Eat
-  - Chapter 43 <https://redd.it/5dzyem>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 43 <https://redd.it/5dzyem>
 - Chapter 44 - I Can't Hear the Fireworks, Part 1
-  - Chapter 44 <https://redd.it/5f3uap>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 44 <https://redd.it/5f3uap>
 - Chapter 45 - I Can't Hear the Fireworks, Part 2
-  - Chapter 45 <https://redd.it/5gjdd4>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 45 <https://redd.it/5gjdd4>
 - Chapter 45.5 - I Can't Hear the Fireworks (Extra)
   - [DISC] Kaguya Wants To Be Confessed To - Chapter 45.5 (Extra) <https://redd.it/d0rlrg>
 - Chapter 46 - Kaguya Doesn't Want to Avoid
-  - Chapter 46 <https://redd.it/5hrxxn>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 46 <https://redd.it/5hrxxn>
 - Chapter 46.5 - Shuchi'in Student Council Shuffle!
   - [DISC] Kaguya-sama Wants to be Confessed to Ch. 46.5 - Anime BD Extra Chapter <https://redd.it/e63dfq>
 - Chapter 47 - Kaguya Wants to Choose
-  - Chapter 47 <https://redd.it/5kttqg>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 47 <https://redd.it/5kttqg>
 - Chapter 48 - The Student Council Isn't Alpha
-  - Chapter 48 <https://redd.it/5nmc0n>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 48 <https://redd.it/5nmc0n>
 - Chapter 49 - Miyuki Shirogane Wants to Prepare
-  - Chapter 49 <https://redd.it/5p10bl>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 49 <https://redd.it/5p10bl>
 - Chapter 50 - Nagisa Kashiwagi Can't Watch
-  - Chapter 50 <https://redd.it/5quuie>
+  - [DISC] Kaguya Wants to be Confessed To- Chapter 50 <https://redd.it/5quuie>
 - Chapter 50.5 - Volume 5 Extras
   - **missing**
 
 ## Chapter 51-100
 
 - Chapter 51 - Kaguya Wants to Celebrate
-  - Chapter 51 <https://redd.it/5rq8ne>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 51 <https://redd.it/5rq8ne>
 - Chapter 52 - Kaguya Wants to Ask
-  - Chapter 52 <https://redd.it/5t52o0>
+  - [DISC] Kaguya Wants to be Confessed To (Chapter 52) (translated by /a/) <https://redd.it/5t52o0>
 - Chapter 53 - Kaguya Wants to Give
-  - Chapter 53 <https://redd.it/5uihi0>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains ch 53 <https://redd.it/5uihi0>
 - Chapter 54 - Chika Fujiwara Wants to Confirm
   - [DISC] Kaguya Wants to be Confessed To (Chapter 54) <https://redd.it/5vt8qd>
 - Chapter 55 - Thus, Yu Ishigami Closed His Eyes, Part
@@ -174,11 +174,11 @@
 - Chapter 72 - Miko Iino Wants to Restrain
   - [DISC] Kaguya Wants to be Confessed To (Chapter 72) <https://redd.it/6ol0kq>
 - Chapter 73 - Miyuki Shirogane Wants to Read
-  - Chapter 73 <https://redd.it/6pfbsc>
+  - [DISC] Kaguya wants to be confessed to (Chapter 73) <https://redd.it/6pfbsc>
 - Chapter 74 - Kaguya ♡ Aquarium
   - [DISC] Kaguya Wants to be Confessed To (Chapter 74) <https://redd.it/6rq339>
 - Chapter 75 - Kaguya Wants to Collect
-  - Chapter 75 <https://redd.it/6unhcd>
+  - [DISC] Kaguya-sama Wants to be Confessed To: The Geniuses' War of Love and Brains Chapter 75 <https://redd.it/6unhcd>
 - Chapter 76 - Nagisa Kashiwagi is Annoying
   - [DISC] Kaguya Wants to be Confessed To (Chapter 76) <https://redd.it/6w3ujk>
 - Chapter 77 - Chika Fujiwara Wants to Get Information
@@ -192,11 +192,11 @@
 - Chapter 80.1 - Vol 8 Extras
   - **missing**
 - Chapter 81 - Kaguya Wants To Touch
-  - Chapter 81 <https://redd.it/74trge>
+  - [DISC] Kaguya sama wants to be confessed chapter 81 <https://redd.it/74trge>
 - Chapter 82 - Kaguya Won't Refuse
   - [DISC] Kaguya wants to be confessed to chapter 82 <https://redd.it/76c904>
 - Chapter 83 - Kei Shirogane Won't Talk
-  - Chapter 83 <https://redd.it/77supu>
+  - [DISC] Kaguya wants to be confessed chapter 83 <https://redd.it/77supu>
 - Chapter 84 - Miyuki Shirogane Wants To Dance
   - [DISC] Kaguya Wants to Be Confessed to (Chapter 84) <https://redd.it/799s2r>
 - Chapter 85 - Kobachi Osaragi Wants to Supervise
@@ -277,13 +277,13 @@
 - Chapter 116 - We Want to Talk About the Culture Festival
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 116 :: Jaimini's Box <https://redd.it/92in13>
 - Chapter 117 - Chika Fujiwara Wants to Fight
-  - Chapter 117 <https://redd.it/94osdk>
+  - [DISC] Kaguya Wants to be Confessed to :: Chapter 117 :: Jaimini's Box <https://redd.it/94osdk>
 - Chapter 118 - Miyuki Shirogane Wants to Expand
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 118 :: Jaimini's Box <https://redd.it/96wgg8>
 - Chapter 119 - Kei Shirogane Wants to Show Off
   - [DISC] Kaguya Wants to be Confessed to Chapter 119 <https://redd.it/9c0446>
 - Chapter 120 - Regarding Kaguya Shinomiya, Part 2
-  - Chapter 120 <https://redd.it/9ebp2j>
+  - Kaguya Wants to be Confessed to :: Chapter 120 :: Jaimini's Box <https://redd.it/9ebp2j>
 - Chapter 121 - Freshman Year, Spring
   - [DISC] Kaguya Wants to be Confessed to Ch. 121 <https://redd.it/9g95ps>
 - Chapter 121.1 - Vol 12 Extras
@@ -308,7 +308,7 @@
 - Chapter 130 - Tsubame Koyasu Wants to Turn Him Down
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 130 :: Jaimini's Box <https://redd.it/a2ivqw>
 - Chapter 131 - Miyuki Shirogane Wants to Be Confessed to, Part 5
-  - Chapter 131 <https://redd.it/a3tqv0>
+  - [Disc] Kaguya Wants To Be Confessed To, Chapter 131 <https://redd.it/a3tqv0>
   - [DISC] Kaguya Wants to be Confessed to Ch. 131 Jaimini's Box <https://redd.it/a45936>
 - Chapter 131.1 - Vol 13 Extras
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 131.1 :: Jaimini's Box (Vol 13 extras) <https://redd.it/arq8ht>
@@ -325,7 +325,7 @@
 - Chapter 137 - The Shuchiin Afterparty
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 137 :: Jaimini's Box <https://redd.it/anyl2p>
 - Chapter 138 - Kaguya Wants to Explain
-  - Chapter 138 <https://redd.it/aqs69l>
+  - [DISC] Kaguya Wants to be Confessed to :: Chapter 138 :: Jaimini's Box <https://redd.it/aqs69l>
 - Chapter 139 - Miyuki Shirogane Wants to Discuss
   - [DISC] Kaguya Wants to be Confessed to Ch. 139 <https://redd.it/at8erw>
   - [Disc] Kaguya Wants to be Confessed To Ch.139 <https://redd.it/asm7ss>
@@ -364,47 +364,47 @@
 - Chapter 151.1 - Vol 15 Extras
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 151.1 :: Jaimini's Box (Vol 15 extras) <https://redd.it/cp8qks>
 - Chapter 152 - Nagisa Kashiwagi Wants to Conceal
-  - Chapter 152 <https://redd.it/c1tx6s>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 152 <https://redd.it/c1tx6s>
   - [DISC] Kaguya Wants to be Confessed to Chapter 152 <https://redd.it/c32rgl>
 - Chapter 153 - The Swallow's Cowry (Ice)
-  - Chapter 153 <https://redd.it/c4vile>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 153<https://redd.it/c4vile>
   - [DISC] Kaguya Wants to be Confessed to Chapter 153 <https://redd.it/c5k7vc>
 - Chapter 154 - Kaguya Shinomiya's Impossible Challenge: "The Swallow's Cowry" (Part 2)
-  - Chapter 154 <https://redd.it/c84pdy>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 154 <https://redd.it/c84pdy>
   - [DISC] Kaguya Wants to be Confessed to Chapter 154 <https://redd.it/c8kp7y>
 - Chapter 155 - Kaguya Shinomiya's Impossible Challenge: "The Swallow's Cowry" (Part 3)
-  - Chapter 155 <https://redd.it/ccudtj>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 155) <https://redd.it/ccudtj>
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 155 :: Jaimini's Box (digital raws) <https://redd.it/cemdrs>
 - Chapter 156 - Miko Iino Cannot Love, Part 2
-  - Chapter 156 <https://redd.it/cglu34>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 156) <https://redd.it/cglu34>
   - [DISC] Kaguya wants to be confessed to Chapter 156 <https://redd.it/cht9k1>
 - Chapter 157 - Chika Fujiwara Really, Really Wants to Eat
-  - Chapter 157 <https://redd.it/cjkkln>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 157) <https://redd.it/cjkkln>
   - [DISC] Kaguya Wants to be Confessed to Chapter 157 <https://redd.it/ckla3y>
 - Chapter 158 - Miko Iino Cannot Love, Part 3
-  - Chapter 158 <https://redd.it/cmksfp>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 158) <https://redd.it/cmksfp>
   - [DISC] Kaguya Wants to be Confessed To: Chapter 158 - JB version <https://redd.it/cnavga>
 - Chapter 159 - Kaguya..., Part 1
-  - Chapter 159 <https://redd.it/cr8rt5>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 159) <https://redd.it/cr8rt5>
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 159 :: Jaimini's Box <https://redd.it/ctte9h>
 - Chapter 160 - Kaguya..., Part 2
-  - Chapter 160 <https://redd.it/czg3f1>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 160) <https://redd.it/czg3f1>
   - [DISC] Kaguya Wants to be Confessed to Chapter 160 (Jamini Box) <https://redd.it/d0bpvc>
 - Chapter 161 - Maki Shijo Wants To Be Enlightened
-  - Chapter 161 <https://redd.it/d2wfgz>
+  - [DISC] Kaguya Wants to be Confessed to :: Chapter 161 <https://redd.it/d2wfgz>
 - Chapter 161.1 - Vol 16 Extras
   - [DISC] Kaguya Wants to be Confessed to Chapter 161.1 (Vol 16 Extras) <https://redd.it/e4qe4f>
 - Chapter 162 - Student Council: New Game
-  - Chapter 162 <https://redd.it/d5coen>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen CH 162 <https://redd.it/d5coen>
 - Chapter 163 - Chika Fujiwara Wants to Surprise
-  - Chapter 163 <https://redd.it/d80z8w>
+  - [DISC]Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 163 <https://redd.it/d80z8w>
   - [DISC] Kaguya Wants to be Confessed to Ch. 163 (Jamini Box) <https://redd.it/d9skcr>
 - Chapter 164 - Chika Fujiwara Wants to Love
-  - Chapter 164 <https://redd.it/dexlvz>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 164 <https://redd.it/dexlvz>
 - Chapter 165 - Senpai-kun and Kouhai-chan, Part 1
-  - Chapter 165 <https://redd.it/dhnzkg>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 165) <https://redd.it/dhnzkg>
 - Chapter 166 - Yu Ishigami Wants to Get Hooked
-  - Chapter 166 <https://redd.it/dlh1k7>
+  - [DISC] Kaguya-sama Wants To Be Confessed To Chapter 166 <https://redd.it/dlh1k7>
 - Chapter 167 - Nagisa Kashiwagi Wants to Drag It out of Her
   - [DISC] Kaguya Wants to be Confessed to - Ch 167 <https://redd.it/dprupt>
 - Chapter 168 - First Encounter
@@ -424,7 +424,7 @@
 - Chapter 172.1 - Kagukoku: Miyuki and His Girls
   - [DISC] Kaguya Wants to be Confessed to Chapter 172.1 <https://redd.it/eg20mb>
 - Chapter 173 - Chika Fujiwara Wants to Tie
-  - Chapter 173 <https://redd.it/efp4lv>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen - Ch. 173 <https://redd.it/efp4lv>
   - [DISC] Kaguya Wants to be Confessed to Chapter 173 <https://redd.it/eg9dt1>
 - Chapter 174 - Miko Iino Cannot Love, Part 4
   - [DISC] Kaguya Wants to be Confessed to Ch. 174 <https://redd.it/em4rue>
@@ -456,13 +456,13 @@
 - Chapter 186 - Ai Hayasaka's Friends, Part 5
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 186 :: Jaimini's Box <https://redd.it/g6e8uf>
 - Chapter 187 - Ai Hayasaka and Kaguya Shinomiya's Friends
-  - Chapter 187 <https://redd.it/gan6yl>
+  - [DISC] Kaguya Wants to be Confessed to :: Chapter 187 :: Jaimini's Box <https://redd.it/gan6yl>
 - Chapter 188 - Miko Iino Can't Make Him Answer
-  - Chapter 188 <https://redd.it/gjeevy>
+  - [DISC] Kaguya Wants to be Confessed to :: Chapter 188 :: Jaimini's Box <https://redd.it/gjeevy>
 - Chapter 189 - Kaguya Shinomiya's Impossible Challenge: "The Buddha's Stone Begging Bowl"
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 189 :: Jaimini's Box <https://redd.it/gnnyrg>
 - Chapter 190 - Senpai-kun and Kouhai-chan, Part 3; Miko Iino Cannot Love, Part 5
-  - Chapter 190 <https://redd.it/grxdp6>
+  - Kaguya Wants To Be Confessed To :: Chapter 190 <https://redd.it/grxdp6>
 - Chapter 191 - Kaguya Shinomiya's Impossible Challenge: "The Swallow's Cowry", Part 5
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 191 <https://redd.it/gw79ub>
   - [DISC] Kaguya Wants To Be Confessed To :: Chapter 191 (JP-CN-EN speedscan) <https://redd.it/gulrjd>
@@ -472,10 +472,10 @@
   - [DISC] Kaguya Wants to be Confessed to - Chapter 192 <https://redd.it/hb4b9j>
   - [DISC] Kaguya Wants to be Confessed to - Chapter 192 (JP-CN-EN speedscan) <https://redd.it/h9dnlh>
 - Chapter 193 - Miyuki Shirogane Wants to Console
-  - Chapter 193 <https://redd.it/hfeubt>
+  - [DISC] Kaguya Wants to be Confessed to - Chapter 193 <https://redd.it/hfeubt>
   - [DISC] Kaguya Wants to be Confessed to - Chapter 193 (CN-EN speedscan) <https://redd.it/he2fro>
 - Chapter 194 - Valentine's at Shuchiin, Part 1
-  - Chapter 194 <https://redd.it/hjnjoh>
+  - [DISC] Kaguya Wants to be Confessed to - Chapter 194 <https://redd.it/hjnjoh>
   - [DISC] Kaguya Wants to be Confessed to - Chapter 194 (CN-EN speedscan) <https://redd.it/hhy9cd>
 - Chapter 195 - Valentine's at Shuchiin, Part 2
   - [DISC] Kaguya Wants to be Confessed to - Chapter 195 <https://redd.it/hs1lgl>
@@ -502,7 +502,7 @@
 ## Chapter 201-current
 
 - Chapter 201 - Tsubame Koyasu Wants to Overwrite
-  - Chapter 201 <https://redd.it/iyd4ej>
+  - [DISC] Kaguya Wants to be Confessed To: The Geniuses' War of Love and Brains Ch. 201 (Zaibatsu Version) <https://redd.it/iyd4ej>
   - [DISC] Kaguya Wants to be Confessed To - Chapter 201 - Tsubane koyasu wants to Rewrite <https://redd.it/iy1crq>
   - [DISC] Kaguya Wants to be Confessed To - Chapter 201 - Koyasu Tsubame wants to Overwrite (#dropout scans) <https://redd.it/iybz60>
 - Chapter 202 - Shuchiin Academy Wants to See Them Off
@@ -562,7 +562,7 @@
 - Chapter 225 - Hikaru Oobayashi Wants to Protect
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 225 <https://redd.it/mw0s1x>
 - Chapter 226 - Kaguya Shinomiya’s Impossible Challenge: “The Buddha’s Stone Begging Bowl” (Part 2)
-  - Chapter 226 <https://redd.it/nb18jz>
+  - [DISC] Kaguya-sama: Love is War Chapter 226 <https://redd.it/nb18jz>
 - Chapter 227 - Miko Iino Wants to Console
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 227 <https://redd.it/ngmbjo>
   - [DISC] Kaguya Wants To Be Confessed To : Chapter 227 <https://redd.it/ngl1yo>
@@ -597,6 +597,11 @@
 - Chapter 241 - Un’yo Shinomiya Can’t Talk
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvdfq>
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvwfd>
+- Chapter 242 - The Shinomiya Family
+  - [DISC] Kaguya Wants to Be Confessed to - Chapter 242 <https://redd.it/qhk1uy>
+
+## Kaguya Wants to be Confessed To Darkness
+
 - Kaguya Wants to be Confessed To Darkness
   - [DISC] Kaguya Wants to be Confessed To Darkness <https://redd.it/6bz7pp>
 - Kaguya Wants to Be Confessed to, Darkness (Vol 2)
