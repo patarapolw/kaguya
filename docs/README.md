@@ -410,7 +410,7 @@
 - Chapter 168 - First Encounter
   - [Disc] Kaguya Wants to Be Confessed to - Ch. 168 (JB release) <https://redd.it/dsr89i>
 - Chapter 169 - The ABCs of Men and Women, Part 1
-  - Chapter 169 <https://redd.it/dyok86>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen (Ch. 169) <https://redd.it/dyok86>
   - [DISC] Kaguya Wants to be Confessed to: Chapter 169 (JaiminisBox) <https://redd.it/e0ajim>
 - Chapter 170 - Miyuki Shirogane Wants to Talk
   - [DISC] Kaguya Wants to be Confessed to Ch. 170 <https://redd.it/e2oy1n>
@@ -435,7 +435,7 @@
 - Chapter 177 - Kaguya Shinomiya's Impossible Challenge: "The Swallow's Cowry" (Part 4)
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 177 :: Jaimini's Box <https://redd.it/ezpt6h>
 - Chapter 178 - Senpai-kun and Kouhai-chan, Part 2
-  - Chapter 178 <https://redd.it/f6ydfz>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen 178 <https://redd.it/f6ydfz>
   - [DISC] Kaguya Wants to be Confessed to :: Chapter 178 :: Jaimini's Box <https://redd.it/f7jaxc>
 - Chapter 179 - Ai Hayasaka's Morning Routine
   - [DISC] Kaguya Wants to be Confessed to - Chapter 179 <https://redd.it/f8v7nr>
@@ -537,7 +537,7 @@
 - Chapter 214 - Kaguya-sama Hates Cats
   - [DISC] Kaguya Wants to be Confessed To - Ch. 214 (Zaibatsu HQ) <https://redd.it/l1t9nl>
 - Chapter 215 - The ABCs of Men and Women, Part 2
-  - Chapter 215 <https://redd.it/l67kgd>
+  - [DISC] Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen Ch. 215 <https://redd.it/l67kgd>
   - [DISC] Kaguya Wants to be Confessed To (Chapter 215) (Zaibatsu HQ) <https://redd.it/l6qajd>
 - Chapter 216 - Kaguya and the Girls Want to Talk
   - [DISC] Kaguya Wants to be Confessed To - Ch. 216 (Zaibatsu HQ) <https://redd.it/lbx6ko>
@@ -548,7 +548,7 @@
 - Chapter 219 - The ABCs of Men and Women, Part 5
   - [DISC] Kaguya Wants to be Confessed To - Ch. 219Zaibatsu HQ <https://redd.it/lxe6ra>
 - Chapter 220 - The ABCs of Men and Women, Part 6
-  - Chapter 220 <https://redd.it/m22mep>
+  - Kaguya Wants To Be Confessed To : : Chapter 220 (Zaibatsu HQ) <https://redd.it/m22mep>
 - Chapter 221 - Kaguya-sama Wants to Talk
   - [DISC] Kaguya Wants to Be Confessed to 221 <https://redd.it/mcr6gb>
 - Chapter 221.1 - Vol 22 Extras
@@ -593,7 +593,7 @@
 - Chapter 239 - Adolphe Pescarolo Wants to Protect
   - [DISC] Kaguya Wants To Be Confessed To - Chapter 239 <https://redd.it/pzehcd>
 - Chapter 240 - Kaguya-sama Wants to Dance
-  - Chapter 240 <https://redd.it/q355c1>
+  - [Disc] Kaguya-sama Wants To Be Confessed To : : Chapter 240 <https://redd.it/q355c1>
 - Chapter 241 - Un’yo Shinomiya Can’t Talk
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvdfq>
   - [DISC] Kaguya Wants to Be Confessed to - Chapter 241 <https://redd.it/qcvwfd>
