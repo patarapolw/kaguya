@@ -607,6 +607,10 @@
 - Kaguya Wants to Be Confessed to, Darkness (Vol 2)
   - [DISC] Kaguya Wants to Be Confessed to, Darkness (Vol 2) <https://redd.it/78bn1t>
 
+## Reader
+
+- <https://guya.moe/read/manga/Kaguya-Wants-To-Be-Confessed-To/>
+
 ## Spin offs
 
 - [We Want to Talk About Kaguya](/4koma)

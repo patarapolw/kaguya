@@ -412,3 +412,9 @@
 ## Relationship to the main series
 
 See <https://docs.google.com/spreadsheets/d/14x97La4KbmlsMMXYWHN3Vvfjd9MxY6fPSoXGrMxHbMQ/edit?usp=sharing>.
+
+## Reader
+
+- <https://guya.moe/read/manga/We-Want-To-Talk-About-Kaguya/>
+- Raw
+  - <https://tonarinoyj.jp/episode/3269754496565321222>
