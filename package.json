@@ -6,8 +6,8 @@
   "scripts": {
     "ts": "ts-node",
     "authorize": "ts-node src/authorize.ts",
-    "docs:dev": "vuepress dev docs",
-    "docs:build": "vuepress build docs",
+    "dev": "vuepress dev docs",
+    "build": "vuepress build docs",
     "deploy": "./deploy.sh"
   },
   "dependencies": {
